@@ -1,7 +1,5 @@
 #!/bin/bash
-DATE=$(date "+%m-%d-%y")
+fortune  > tmp.txt
 
-echo $DATE > tmp.txt
-
-git commit -am "$DATE"
+git commit -am "LOL"
 git push
