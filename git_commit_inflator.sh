@@ -1,5 +1,5 @@
 #!/bin/bash
-fortune  > tmp.txt
+fortune | cowsay > tmp.txt
 
 git commit -am "LOL"
 git push
