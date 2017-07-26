@@ -1,7 +1,7 @@
- ___________________________________
-/ Your nature demands love and your \
-\ happiness depends on it.          /
- -----------------------------------
+ ________________________________________
+/ You have a will that can be influenced \
+\ by all with whom you come in contact.  /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
