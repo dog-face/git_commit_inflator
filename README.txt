@@ -1,8 +1,11 @@
- _______________________________________
-/ You'll wish that you had done some of \
-| the hard things when they were easier |
-\ to do.                                /
- ---------------------------------------
+ _________________________________________
+/ Q: How many Zen masters does it take to \
+| screw in a light bulb? A: None. The     |
+| Universe spins the bulb, and the Zen    |
+| master stays out                        |
+|                                         |
+\ of the way.                             /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
