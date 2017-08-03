@@ -1,10 +1,7 @@
  _________________________________________
-/ Q: How many Zen masters does it take to \
-| screw in a light bulb? A: None. The     |
-| Universe spins the bulb, and the Zen    |
-| master stays out                        |
-|                                         |
-\ of the way.                             /
+/ While you recently had your problems on \
+| the run, they've regrouped and are      |
+\ making another attack.                  /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
