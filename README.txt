@@ -1,8 +1,7 @@
- _________________________________________
-/ While you recently had your problems on \
-| the run, they've regrouped and are      |
-\ making another attack.                  /
- -----------------------------------------
+ _______________________________________
+/ Your mode of life will be changed for \
+\ the better because of good news soon. /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
