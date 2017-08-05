@@ -1,7 +1,7 @@
- _______________________________________
-/ Your mode of life will be changed for \
-\ the better because of good news soon. /
- ---------------------------------------
+ _____________________________________
+/ You are not dead yet. But watch for \
+\ further reports.                    /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
