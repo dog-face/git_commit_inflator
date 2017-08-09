@@ -1,8 +1,10 @@
- _________________________________________
-/ He hath eaten me out of house and home. \
-|                                         |
-\ -- William Shakespeare, "Henry IV"      /
- -----------------------------------------
+ _______________________________________
+/ "Life, loathe it or ignore it, you    \
+| can't like it."                       |
+|                                       |
+| -- Marvin, "Hitchhiker's Guide to the |
+\ Galaxy"                               /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
