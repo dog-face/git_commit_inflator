@@ -1,10 +1,7 @@
- _______________________________________
-/ "Life, loathe it or ignore it, you    \
-| can't like it."                       |
-|                                       |
-| -- Marvin, "Hitchhiker's Guide to the |
-\ Galaxy"                               /
- ---------------------------------------
+ ________________________________________
+/ Q: Why did the WASP cross the road? A: \
+\ To get to the middle.                  /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
