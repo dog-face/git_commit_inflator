@@ -1,10 +1,7 @@
- ________________________________________
-/ ... A solemn, unsmiling, sanctimonious \
-| old iceberg who looked like he was     |
-| waiting for a vacancy in the Trinity.  |
-|                                        |
-\ -- Mark Twain                          /
- ----------------------------------------
+ ______________________________________
+/ You have an unusual equipment for    \
+\ success. Be sure to use it properly. /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
