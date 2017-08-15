@@ -1,6 +1,6 @@
  ______________________________________
-/ You have an unusual equipment for    \
-\ success. Be sure to use it properly. /
+/ You have an ambitious nature and may \
+\ make a name for yourself.            /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
