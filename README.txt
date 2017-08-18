@@ -1,8 +1,7 @@
- ________________________________________
-/ Q: Why do mountain climbers rope       \
-| themselves together? A: To prevent the |
-\ sensible ones from going home.         /
- ----------------------------------------
+ _____________________________________
+/ Fine day for friends. So-so day for \
+\ you.                                /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
