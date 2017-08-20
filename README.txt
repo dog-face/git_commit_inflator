@@ -1,9 +1,7 @@
- ________________________________________
-/ Lay on, MacDuff, and curs'd be him who \
-| first cries, "Hold, enough!".          |
-|                                        |
-\ -- Shakespeare                         /
- ----------------------------------------
+ _________________________________________
+/ And do you think (fop that I am) that I \
+\ could be the Scarlet Pumpernickel?      /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
