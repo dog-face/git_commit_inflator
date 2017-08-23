@@ -1,9 +1,8 @@
- ________________________________________
-/ FORTUNE PROVIDES QUESTIONS FOR THE     \
-| GREAT ANSWERS: #4 A: Go west, young    |
-| man, go west! Q: What do wabbits do    |
-\ when they get tiwed of wunning awound? /
- ----------------------------------------
+ _______________________________________
+/ You'll wish that you had done some of \
+| the hard things when they were easier |
+\ to do.                                /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
