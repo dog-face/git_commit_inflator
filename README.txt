@@ -1,8 +1,7 @@
- _______________________________________
-/ You'll wish that you had done some of \
-| the hard things when they were easier |
-\ to do.                                /
- ---------------------------------------
+ ________________________________________
+/ Q: What's a WASP's idea of             \
+\ open-mindedness? A: Dating a Canadian. /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
