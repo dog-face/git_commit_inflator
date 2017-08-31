@@ -1,18 +1,8 @@
- _________________________________________
-/  "You have heard me speak of Professor  \
-| Moriarty?"                              |
-|                                         |
-| "The famous scientific criminal, as     |
-| famous among crooks as --"              |
-|                                         |
-| "My blushes, Watson," Holmes murmured,  |
-| in a deprecating voice.                 |
-|                                         |
-| "I was about to say 'as he is unknown   |
-| to the public.'"                        |
-|                                         |
-\ -- A. Conan Doyle, "The Valley of Fear" /
- -----------------------------------------
+ ________________________________________
+/ Q: What's the difference between Bell  \
+| Labs and the Boy Scouts of America? A: |
+\ The Boy Scouts have adult supervision. /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
