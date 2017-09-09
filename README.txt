@@ -1,7 +1,7 @@
- _____________________________________
-/ You're a card which will have to be \
-\ dealt with.                         /
- -------------------------------------
+ _______________________________________
+/ You'll be called to a post requiring  \
+\ ability in handling groups of people. /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
