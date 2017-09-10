@@ -1,7 +1,7 @@
- _______________________________________
-/ You'll be called to a post requiring  \
-\ ability in handling groups of people. /
- ---------------------------------------
+ _________________________________________
+/ Don't read any sky-writing for the next \
+\ two weeks.                              /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
