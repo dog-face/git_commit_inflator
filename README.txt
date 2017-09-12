@@ -1,7 +1,8 @@
- ________________________________________
-/ Executive ability is prominent in your \
-\ make-up.                               /
- ----------------------------------------
+ ____________________________________
+/ You may be gone tomorrow, but that \
+| doesn't mean that you weren't here |
+\ today.                             /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
