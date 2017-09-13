@@ -1,8 +1,7 @@
- ____________________________________
-/ You may be gone tomorrow, but that \
-| doesn't mean that you weren't here |
-\ today.                             /
- ------------------------------------
+ _________________________________________
+/ Live in a world of your own, but always \
+\ welcome visitors.                       /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
