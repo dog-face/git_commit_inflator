@@ -1,7 +1,10 @@
- _________________________________________
-/ Live in a world of your own, but always \
-\ welcome visitors.                       /
- -----------------------------------------
+ ________________________________________
+/ When you are about to die, a wombat is \
+| better than no company at all.         |
+|                                        |
+| -- Roger Zelazny, "Doorways in the     |
+\ Sand"                                  /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
