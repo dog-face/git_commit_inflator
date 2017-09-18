@@ -1,9 +1,10 @@
- _______________________________________
-/ Must I hold a candle to my shames?    \
-|                                       |
-| -- William Shakespeare, "The Merchant |
-\ of Venice"                            /
- ---------------------------------------
+ _________________________________________
+/ Zounds! I was never so bethumped with   \
+| words since I first called my brother's |
+| father dad.                             |
+|                                         |
+\ -- William Shakespeare, "Kind John"     /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
