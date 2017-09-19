@@ -1,10 +1,7 @@
- _________________________________________
-/ Zounds! I was never so bethumped with   \
-| words since I first called my brother's |
-| father dad.                             |
-|                                         |
-\ -- William Shakespeare, "Kind John"     /
- -----------------------------------------
+ ______________________________________
+/ You could live a better life, if you \
+\ had a better mind and a better body. /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
