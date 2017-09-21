@@ -1,7 +1,10 @@
- ______________________________________
-/ You have an ambitious nature and may \
-\ make a name for yourself.            /
- --------------------------------------
+ _____________________________________
+/ The naked truth of it is, I have no \
+| shirt.                              |
+|                                     |
+| -- William Shakespeare, "Love's     |
+\ Labour's Lost"                      /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
