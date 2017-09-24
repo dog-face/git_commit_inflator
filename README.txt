@@ -1,10 +1,8 @@
- _________________________________________
-/ Zounds! I was never so bethumped with   \
-| words since I first called my brother's |
-| father dad.                             |
-|                                         |
-\ -- William Shakespeare, "Kind John"     /
- -----------------------------------------
+ _______________________________
+/ Don't worry. Life's too long. \
+|                               |
+\ -- Vincent Sardi, Jr.         /
+ -------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
