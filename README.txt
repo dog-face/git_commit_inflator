@@ -1,10 +1,9 @@
- _________________________________________
-/ Soap and education are not as sudden as \
-| a massacre, but they are more deadly in |
-| the long run.                           |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ ________________________________
+/ All generalizations are false, \
+| including this one.            |
+|                                |
+\ -- Mark Twain                  /
+ --------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
