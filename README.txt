@@ -1,9 +1,9 @@
- ____________________________________
-/ He is now rising from affluence to \
-| poverty.                           |
-|                                    |
-\ -- Mark Twain                      /
- ------------------------------------
+ ________________________________________
+/ Rebellion lay in his way, and he found \
+| it.                                    |
+|                                        |
+\ -- William Shakespeare, "Henry IV"     /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
