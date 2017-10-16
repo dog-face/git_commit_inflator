@@ -1,9 +1,9 @@
- ________________________________________
-/ Rebellion lay in his way, and he found \
-| it.                                    |
-|                                        |
-\ -- William Shakespeare, "Henry IV"     /
- ----------------------------------------
+ ____________________________________
+/ Something's rotten in the state of \
+| Denmark.                           |
+|                                    |
+\ -- Shakespeare                     /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
