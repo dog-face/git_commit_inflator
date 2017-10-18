@@ -1,7 +1,7 @@
- ________________________________________
-/ You've been leading a dog's life. Stay \
-\ off the furniture.                     /
- ----------------------------------------
+ ________________________________
+/ You may get an opportunity for \
+\ advancement today. Watch it!   /
+ --------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
