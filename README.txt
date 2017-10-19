@@ -1,7 +1,7 @@
- ________________________________
-/ You may get an opportunity for \
-\ advancement today. Watch it!   /
- --------------------------------
+ ________________________________________
+/ Don't let your mind wander -- it's too \
+\ little to be let out alone.            /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
