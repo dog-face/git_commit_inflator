@@ -1,7 +1,8 @@
- ________________________________________
-/ Don't let your mind wander -- it's too \
-\ little to be let out alone.            /
- ----------------------------------------
+ __________________________________
+/ Be cheerful while you are alive. \
+|                                  |
+\ -- Phathotep, 24th Century B.C.  /
+ ----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
