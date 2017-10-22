@@ -1,7 +1,7 @@
- ______________________________________
-/ You love your home and want it to be \
-\ beautiful.                           /
- --------------------------------------
+ _________________________________________
+/ Your mode of life will be changed for   \
+\ the better because of new developments. /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
