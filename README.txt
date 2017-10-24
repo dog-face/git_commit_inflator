@@ -1,11 +1,7 @@
  _________________________________________
-/  You will remember, Watson, how the     \
-| dreadful business of the Abernetty      |
-| family was first brought to my notice   |
-| by the depth which the parsley had sunk |
-| into the butter upon a hot day.         |
+/ This was the most unkindest cut of all. \
 |                                         |
-\ -- Sherlock Holmes                      /
+\ -- William Shakespeare, "Julius Caesar" /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
