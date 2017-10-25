@@ -1,7 +1,6 @@
  _________________________________________
-/ This was the most unkindest cut of all. \
-|                                         |
-\ -- William Shakespeare, "Julius Caesar" /
+/ Of course you have a purpose -- to find \
+\ a purpose.                              /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
