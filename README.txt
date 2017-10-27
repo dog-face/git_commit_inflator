@@ -1,8 +1,7 @@
- _________________________________________
-/ The better part of valor is discretion. \
-|                                         |
-\ -- William Shakespeare, "Henry IV"      /
- -----------------------------------------
+ ____________________________________
+/ You will be a winner today. Pick a \
+\ fight with a four-year-old.        /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
