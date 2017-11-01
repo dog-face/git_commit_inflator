@@ -1,8 +1,10 @@
- _________________________________________
-/ FORTUNE PROVIDES QUESTIONS FOR THE      \
-| GREAT ANSWERS: #19 A: To be or not to   |
-\ be. Q: What is the square root of 4b^2? /
- -----------------------------------------
+ _____________________________________
+/ The naked truth of it is, I have no \
+| shirt.                              |
+|                                     |
+| -- William Shakespeare, "Love's     |
+\ Labour's Lost"                      /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
