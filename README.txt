@@ -1,7 +1,7 @@
- ______________________________________
-/ Q: What's a light-year? A: One-third \
-\ less calories than a regular year.   /
- --------------------------------------
+ ___________________________________
+/ Life is to you a dashing and bold \
+\ adventure.                        /
+ -----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
