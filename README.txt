@@ -1,6 +1,8 @@
  ____________________________________
-/ You're being followed. Cut out the \
-\ hanky-panky for a few days.        /
+/ An honest tale speeds best being   \
+| plainly told.                      |
+|                                    |
+\ -- William Shakespeare, "Henry VI" /
  ------------------------------------
         \   ^__^
          \  (oo)\_______
