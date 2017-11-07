@@ -1,9 +1,8 @@
- ____________________________________
-/ An honest tale speeds best being   \
-| plainly told.                      |
-|                                    |
-\ -- William Shakespeare, "Henry VI" /
- ------------------------------------
+ ________________________________________
+/ Q: How many lawyers does it take to    \
+| change a light bulb? A: One. Only it's |
+\ his light bulb when he's done.         /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
