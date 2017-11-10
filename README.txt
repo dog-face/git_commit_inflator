@@ -1,7 +1,9 @@
- _________________________________________
-/ An exotic journey in downtown Newark is \
-\ in your future.                         /
- -----------------------------------------
+ ______________________________________
+/ You have an unusual magnetic         \
+| personality. Don't walk too close to |
+| metal objects which are not fastened |
+\ down.                                /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
