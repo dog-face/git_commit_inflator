@@ -1,8 +1,9 @@
- _____________________________________
-/ You have the body of a 19 year old. \
-| Please return it before it gets     |
-\ wrinkled.                           /
- -------------------------------------
+ ____________________________________
+/ A horse! A horse! My kingdom for a \
+| horse!                             |
+|                                    |
+\ -- Wm. Shakespeare, "Richard III"  /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
