@@ -1,8 +1,8 @@
  _________________________________________
-/ I do desire we may be better strangers. \
+/ But, for my own part, it was Greek to   \
+| me.                                     |
 |                                         |
-| -- William Shakespeare, "As You Like    |
-\ It"                                     /
+\ -- William Shakespeare, "Julius Caesar" /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
