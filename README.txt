@@ -1,8 +1,7 @@
- _________________________________________
-/ Q: What do you say to a New Yorker with \
-| a job? A: Big Mac, fries and a Coke,    |
-\ please!                                 /
- -----------------------------------------
+ _____________________________________
+/ Today is National Existential Ennui \
+\ Awareness Day.                      /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
