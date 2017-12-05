@@ -1,7 +1,10 @@
- ____________________________________
-/ You will pioneer the first Martian \
-\ colony.                            /
- ------------------------------------
+ ________________________________________
+/ Always the dullness of the fool is the \
+| whetstone of the wits.                 |
+|                                        |
+| -- William Shakespeare, "As You Like   |
+\ It"                                    /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
