@@ -1,6 +1,7 @@
  _______________________________________
-/ You will give someone a piece of your \
-\ mind, which you can ill afford.       /
+/ You'll wish that you had done some of \
+| the hard things when they were easier |
+\ to do.                                /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
