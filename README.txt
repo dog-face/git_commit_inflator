@@ -1,8 +1,7 @@
- ____________________________________
-/ Q: Why did the germ cross the      \
-| microscope? A: To get to the other |
-\ slide.                             /
- ------------------------------------
+ ______________________________________
+/ You will probably marry after a very \
+\ brief courtship.                     /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
