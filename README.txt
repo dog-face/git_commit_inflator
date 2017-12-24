@@ -1,7 +1,9 @@
- ______________________________________
-/ You will probably marry after a very \
-\ brief courtship.                     /
- --------------------------------------
+ ________________________________________
+/ Writing is turning one's worst moments \
+| into money.                            |
+|                                        |
+\ -- J.P. Donleavy                       /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
