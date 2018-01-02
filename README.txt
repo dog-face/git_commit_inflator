@@ -1,8 +1,10 @@
- ______________________________________
-/ Your motives for doing whatever good \
-| deed you may have in mind will be    |
-\ misinterpreted by somebody.          /
- --------------------------------------
+ _________________________________________
+/ Zounds! I was never so bethumped with   \
+| words since I first called my brother's |
+| father dad.                             |
+|                                         |
+\ -- William Shakespeare, "Kind John"     /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
