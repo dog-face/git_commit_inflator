@@ -1,8 +1,10 @@
- _______________________________________
-/ You should emulate your heros, but    \
-| don't carry it too far. Especially if |
-\ they are dead.                        /
- ---------------------------------------
+ ________________________________________
+/ Q: How do you play religious roulette? \
+| A: You stand around in a circle and    |
+| blaspheme and see who gets             |
+|                                        |
+\ struck by lightning first.             /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
