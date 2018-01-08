@@ -1,9 +1,8 @@
- ________________________________________
-/ Q: How many college football players   \
-| does it take to screw in a light bulb? |
-| A: Only one, but he gets three credits |
-\ for it.                                /
- ----------------------------------------
+ ____________________________________
+/ Q: Why did the germ cross the      \
+| microscope? A: To get to the other |
+\ slide.                             /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
