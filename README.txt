@@ -1,8 +1,10 @@
  _________________________________________
-/ I do desire we may be better strangers. \
+/ A hundred years from now it is very     \
+| likely that [of Twain's works] "The     |
+| Jumping Frog" alone will be remembered. |
 |                                         |
-| -- William Shakespeare, "As You Like    |
-\ It"                                     /
+| -- Harry Thurston Peck (Editor of "The  |
+\ Bookman"), January 1901.                /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
