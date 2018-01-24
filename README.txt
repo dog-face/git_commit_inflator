@@ -1,9 +1,9 @@
- _____________________________________
-/ Nothing so needs reforming as other \
-| people's habits.                    |
-|                                     |
-\ -- Mark Twain                       /
- -------------------------------------
+ _______________________________________
+/ Wrinkles should merely indicate where \
+| smiles have been.                     |
+|                                       |
+\ -- Mark Twain                         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
