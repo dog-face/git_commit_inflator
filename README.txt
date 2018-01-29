@@ -1,9 +1,9 @@
- _________________________________________
-/ The whole world is a tuxedo and you are \
-| a pair of brown shoes.                  |
-|                                         |
-\ -- George Gobel                         /
- -----------------------------------------
+ _____________________________________
+/ Truth is the most valuable thing we \
+| have -- so let us economize it.     |
+|                                     |
+\ -- Mark Twain                       /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
