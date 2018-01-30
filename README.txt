@@ -1,9 +1,9 @@
- _____________________________________
-/ Truth is the most valuable thing we \
-| have -- so let us economize it.     |
-|                                     |
-\ -- Mark Twain                       /
- -------------------------------------
+ ________________________________________
+/ There is a great discovery still to be \
+| made in Literature: that of paying     |
+| literary men by the quantity they do   |
+\ NOT write.                             /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
