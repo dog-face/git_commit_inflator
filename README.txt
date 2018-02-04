@@ -1,7 +1,8 @@
- _______________________________________
-/ You shall be rewarded for a dastardly \
-\ deed.                                 /
- ---------------------------------------
+ ______________________________________
+/ You plan things that you do not even \
+| attempt because of your extreme      |
+\ caution.                             /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
