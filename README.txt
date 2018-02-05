@@ -1,8 +1,7 @@
- ______________________________________
-/ You plan things that you do not even \
-| attempt because of your extreme      |
-\ caution.                             /
- --------------------------------------
+ _________________________________________
+/ Today is the tomorrow you worried about \
+\ yesterday.                              /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
