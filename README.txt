@@ -1,7 +1,7 @@
- _________________________________________
-/ Today is the tomorrow you worried about \
-\ yesterday.                              /
- -----------------------------------------
+ ______________________________________
+/ Lady Luck brings added income today. \
+\ Lady friend takes it away tonight.   /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
