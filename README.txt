@@ -1,6 +1,6 @@
  ______________________________________
-/ Lady Luck brings added income today. \
-\ Lady friend takes it away tonight.   /
+/ You will be the last person to buy a \
+\ Chrysler.                            /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
