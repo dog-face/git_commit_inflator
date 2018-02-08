@@ -1,6 +1,7 @@
  ______________________________________
-/ You will be the last person to buy a \
-\ Chrysler.                            /
+/ Q: What happens when four WASPs find \
+| themselves in the same room? A: A    |
+\ dinner party.                        /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
