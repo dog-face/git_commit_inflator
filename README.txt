@@ -1,7 +1,6 @@
  ______________________________________
-/ Q: What happens when four WASPs find \
-| themselves in the same room? A: A    |
-\ dinner party.                        /
+/ You teach best what you most need to \
+\ learn.                               /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
