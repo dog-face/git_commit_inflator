@@ -1,7 +1,7 @@
- _________________________________________
-/ You will be recognized and honored as a \
-\ community leader.                       /
- -----------------------------------------
+ ________________________________________
+/ Everything that you know is wrong, but \
+\ you can be straightened out.           /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
