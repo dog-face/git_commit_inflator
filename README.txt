@@ -1,6 +1,6 @@
  ________________________________________
-/ Everything that you know is wrong, but \
-\ you can be straightened out.           /
+/ Don't let your mind wander -- it's too \
+\ little to be let out alone.            /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
