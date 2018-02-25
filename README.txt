@@ -1,7 +1,7 @@
- _________________________________________
-/ Of course you have a purpose -- to find \
-\ a purpose.                              /
- -----------------------------------------
+ _____________________________________
+/ You recoil from the crude; you tend \
+\ naturally toward the exquisite.     /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
