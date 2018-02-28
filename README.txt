@@ -1,9 +1,7 @@
- _____________________________________
-/ Truth is the most valuable thing we \
-| have -- so let us economize it.     |
-|                                     |
-\ -- Mark Twain                       /
- -------------------------------------
+ _________________________________________
+/ Your object is to save the world, while \
+\ still leading a pleasant life.          /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
