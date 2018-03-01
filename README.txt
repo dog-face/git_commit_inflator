@@ -1,6 +1,6 @@
  _________________________________________
-/ Your object is to save the world, while \
-\ still leading a pleasant life.          /
+/ You would if you could but you can't so \
+\ you won't.                              /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
