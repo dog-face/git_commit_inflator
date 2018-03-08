@@ -1,7 +1,9 @@
- ____________________________________
-/ Q: What is orange and goes "click, \
-\ click?" A: A ball point carrot.    /
- ------------------------------------
+ _________________________________________
+/ I have never let my schooling interfere \
+| with my education.                      |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
