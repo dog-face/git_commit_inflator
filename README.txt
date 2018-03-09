@@ -1,8 +1,6 @@
  _________________________________________
-/ I have never let my schooling interfere \
-| with my education.                      |
-|                                         |
-\ -- Mark Twain                           /
+/ Today is the tomorrow you worried about \
+\ yesterday.                              /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
