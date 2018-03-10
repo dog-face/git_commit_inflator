@@ -1,7 +1,7 @@
- _________________________________________
-/ Today is the tomorrow you worried about \
-\ yesterday.                              /
- -----------------------------------------
+ _____________________________________
+/ Don't relax! It's only your tension \
+\ that's holding you together.        /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
