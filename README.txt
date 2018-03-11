@@ -1,6 +1,6 @@
  _____________________________________
-/ Don't relax! It's only your tension \
-\ that's holding you together.        /
+/ Someone whom you reject today, will \
+\ reject you tomorrow.                /
  -------------------------------------
         \   ^__^
          \  (oo)\_______
