@@ -1,7 +1,8 @@
- _____________________________________
-/ Someone whom you reject today, will \
-\ reject you tomorrow.                /
- -------------------------------------
+ _______________________________________
+/ You'll wish that you had done some of \
+| the hard things when they were easier |
+\ to do.                                /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
