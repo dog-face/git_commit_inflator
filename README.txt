@@ -1,7 +1,7 @@
- ________________________________________
-/ Tomorrow will be cancelled due to lack \
-\ of interest.                           /
- ----------------------------------------
+ __________________________________
+/ You will overcome the attacks of \
+\ jealous associates.              /
+ ----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
