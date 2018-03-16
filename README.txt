@@ -1,14 +1,10 @@
-<<<<<<< HEAD
- _____________________________________
-/ You're growing out of some of your  \
-| problems, but there are others that |
-\ you're growing into.                /
- -------------------------------------
-=======
- _____________________________
-< Give him an evasive answer. >
- -----------------------------
->>>>>>> 1211e396ae2b934d9e706351dd72254dc308d8e1
+ _______________________________________
+/ Noise proves nothing. Often a hen who \
+| has merely laid an egg cackles as if  |
+| she laid an asteroid.                 |
+|                                       |
+\ -- Mark Twain                         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
