@@ -1,11 +1,9 @@
- ________________________________________
-/ This is the first age that's paid much \
-| attention to the future, which is a    |
-| little ironic since we may not have    |
-| one.                                   |
-|                                        |
-\ -- Arthur Clarke                       /
- ----------------------------------------
+ ____________________________________
+/ He is now rising from affluence to \
+| poverty.                           |
+|                                    |
+\ -- Mark Twain                      /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
