@@ -1,8 +1,6 @@
- ____________________________________
-/ You may be gone tomorrow, but that \
-| doesn't mean that you weren't here |
-\ today.                             /
- ------------------------------------
+ ____________________________
+< Just to have it is enough. >
+ ----------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
