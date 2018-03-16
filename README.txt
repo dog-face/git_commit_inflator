@@ -1,11 +1,6 @@
- ______________________________________
-/ F.S. Fitzgerald to Hemingway:        \
-|                                      |
-| "Ernest, the rich are different from |
-| us." Hemingway:                      |
-|                                      |
-\ "Yes. They have more money."         /
- --------------------------------------
+ _____________________________
+< Give him an evasive answer. >
+ -----------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
