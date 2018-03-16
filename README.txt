@@ -1,9 +1,8 @@
- ____________________________________
-/ He is now rising from affluence to \
-| poverty.                           |
-|                                    |
-\ -- Mark Twain                      /
- ------------------------------------
+ _______________________________________
+/ You should emulate your heros, but    \
+| don't carry it too far. Especially if |
+\ they are dead.                        /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
