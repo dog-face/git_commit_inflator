@@ -5,4 +5,7 @@ then
     fortune | cowsay > README.txt
     git commit -am "LOL"
     git push
+else
+    echo skipping today
 fi
+

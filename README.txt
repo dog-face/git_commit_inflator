@@ -1,10 +1,10 @@
- ________________________________________
-/ Q: What do you call a WASP who doesn't \
-| work for his father, isn't a           |
-|                                        |
-| lawyer, and believes in social causes? |
-\ A: A failure.                          /
- ----------------------------------------
+ ___________________________________
+/ After all, all he did was string  \
+| together a lot of old, well-known |
+| quotations.                       |
+|                                   |
+\ -- H. L. Mencken, on Shakespeare  /
+ -----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
