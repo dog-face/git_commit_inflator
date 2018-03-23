@@ -1,8 +1,7 @@
- _______________________________________
-/ Q: Why did the programmer call his    \
-| mother long distance? A: Because that |
-\ was her name.                         /
- ---------------------------------------
+ _________________________________________
+/ Good day for a change of scene. Repaper \
+\ the bedroom wall.                       /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
