@@ -1,7 +1,7 @@
- _________________________________________
-/ Good day for a change of scene. Repaper \
-\ the bedroom wall.                       /
- -----------------------------------------
+ _____________________________________
+/ Your true value depends entirely on \
+\ what you are compared with.         /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
