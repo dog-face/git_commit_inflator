@@ -1,8 +1,10 @@
- _____________________________________
-/ You learn to write as if to someone \
-| else because NEXT YEAR YOU WILL BE  |
-\ "SOMEONE ELSE."                     /
- -------------------------------------
+ ______________________________________
+/ I was gratified to be able to answer \
+| promptly, and I did. I said I didn't |
+| know.                                |
+|                                      |
+\ -- Mark Twain                        /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
