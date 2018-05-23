@@ -1,7 +1,6 @@
- _________________________________________
-/ People are beginning to notice you. Try \
-\ dressing before you leave the house.    /
- -----------------------------------------
+ ____________________________________
+< Be cautious in your daily affairs. >
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
