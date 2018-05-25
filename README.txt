@@ -1,10 +1,7 @@
- ________________________________________
-/ When you are about to die, a wombat is \
-| better than no company at all.         |
-|                                        |
-| -- Roger Zelazny, "Doorways in the     |
-\ Sand"                                  /
- ----------------------------------------
+ ____________________________________
+/ Don't kiss an elephant on the lips \
+\ today.                             /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
