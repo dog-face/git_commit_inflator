@@ -1,9 +1,6 @@
  _______________________________________
-/ Don't go around saying the world owes \
-| you a living. The world owes you      |
-| nothing. It was here first.           |
-|                                       |
-\ -- Mark Twain                         /
+/ Try to have as good a life as you can \
+\ under the circumstances.              /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
