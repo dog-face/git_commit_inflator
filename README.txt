@@ -1,9 +1,7 @@
  _________________________________________
-/ Knucklehead: "Knock, knock" Pee Wee:    \
-| "Who's there?" Knucklehead: "Little ol' |
-| lady." Pee Wee: "Liddle ol' lady who?"  |
-| Knucklehead: "I didn't know you could   |
-\ yodel"                                  /
+/ You will pay for your sins. If you have \
+| already paid, please disregard this     |
+\ message.                                /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
