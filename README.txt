@@ -1,8 +1,7 @@
- _________________________________________
-/ You will pay for your sins. If you have \
-| already paid, please disregard this     |
-\ message.                                /
- -----------------------------------------
+ ______________________________________
+/ A few hours grace before the madness \
+\ begins again.                        /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
