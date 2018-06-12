@@ -1,7 +1,9 @@
- _____________________________________
-/ A visit to a fresh place will bring \
-\ strange work.                       /
- -------------------------------------
+ _________________________________________
+/ Be careful of reading health books, you \
+| might die of a misprint.                |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
