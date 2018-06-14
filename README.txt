@@ -1,9 +1,8 @@
- _________________________________________
-/ Be careful of reading health books, you \
-| might die of a misprint.                |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ ______________________________________
+/ Q: How many marketing people does it \
+| take to change a light bulb? A: I'll |
+\ have to get back to you on that.     /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
