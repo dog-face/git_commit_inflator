@@ -1,8 +1,9 @@
- _________________________________________
-/ Q: What's the difference between a Mac  \
-| and an Etch-a-Sketch? A: You don't have |
-\ to shake the Mac to clear the screen.   /
- -----------------------------------------
+ ______________________________________
+/ All things that are, are with more   \
+| spirit chased than enjoyed.          |
+|                                      |
+\ -- Shakespeare, "Merchant of Venice" /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
