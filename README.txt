@@ -1,9 +1,7 @@
- _________________________________________
-/ Clothes make the man. Naked people have \
-| little or no influence on society.      |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ _____________________________________
+/ You are the only person to ever get \
+\ this message.                       /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
