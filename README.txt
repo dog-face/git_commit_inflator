@@ -1,7 +1,11 @@
- _____________________________________
-/ You are the only person to ever get \
-\ this message.                       /
- -------------------------------------
+ ________________________________________
+/ There is always one thing to remember: \
+| writers are always selling somebody    |
+| out.                                   |
+|                                        |
+| -- Joan Didion, "Slouching Towards     |
+\ Bethlehem"                             /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
