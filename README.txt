@@ -1,10 +1,6 @@
  ________________________________________
-/ There is always one thing to remember: \
-| writers are always selling somebody    |
-| out.                                   |
-|                                        |
-| -- Joan Didion, "Slouching Towards     |
-\ Bethlehem"                             /
+/ You are farsighted, a good planner, an \
+\ ardent lover, and a faithful friend.   /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
