@@ -1,6 +1,10 @@
  ________________________________________
-/ You are farsighted, a good planner, an \
-\ ardent lover, and a faithful friend.   /
+/ Q: Why do people who live near Niagara \
+| Falls have flat foreheads? A: Because  |
+| every morning they wake up thinking    |
+| "What *is* that noise?                 |
+|                                        |
+\ Oh, right, *of course*!                /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
