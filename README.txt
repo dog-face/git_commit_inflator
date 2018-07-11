@@ -1,6 +1,7 @@
- ____________________________________
-< You will be married within a year. >
- ------------------------------------
+ _______________________________________
+/ Your mode of life will be changed for \
+\ the better because of good news soon. /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
