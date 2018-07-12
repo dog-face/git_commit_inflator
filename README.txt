@@ -1,7 +1,7 @@
- _______________________________________
-/ Your mode of life will be changed for \
-\ the better because of good news soon. /
- ---------------------------------------
+ _________________________________________
+/ Today is the tomorrow you worried about \
+\ yesterday.                              /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
