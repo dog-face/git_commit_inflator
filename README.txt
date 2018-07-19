@@ -1,13 +1,9 @@
- ________________________________________
-/ I've touch'd the highest point of all  \
-| my greatness; And from that full       |
-| meridian of my glory I haste now to my |
-| setting. I shall fall, Like a bright   |
-| exhalation in the evening And no man   |
-| see me more.                           |
-|                                        |
-\ -- Shakespeare                         /
- ----------------------------------------
+ _________________________________________
+/ Seeing that death, a necessary end,     \
+| Will come when it will come.            |
+|                                         |
+\ -- William Shakespeare, "Julius Caesar" /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
