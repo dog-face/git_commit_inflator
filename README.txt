@@ -1,10 +1,6 @@
- ____________________________________
-/ The last thing one knows in        \
-| constructing a work is what to put |
-| first.                             |
-|                                    |
-\ -- Blaise Pascal                   /
- ------------------------------------
+ ________________________________________
+< Your supervisor is thinking about you. >
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
