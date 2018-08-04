@@ -1,6 +1,6 @@
  ______________________________________
-/ You will be the last person to buy a \
-\ Chrysler.                            /
+/ You have an unusual equipment for    \
+\ success. Be sure to use it properly. /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
