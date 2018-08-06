@@ -1,7 +1,7 @@
- ______________________________________
-/ You have an unusual equipment for    \
-\ success. Be sure to use it properly. /
- --------------------------------------
+ _______________________________________
+/ Many changes of mind and mood; do not \
+\ hesitate too long.                    /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
