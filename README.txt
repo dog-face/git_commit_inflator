@@ -1,7 +1,7 @@
- _______________________________________
-/ Many changes of mind and mood; do not \
-\ hesitate too long.                    /
- ---------------------------------------
+ _________________________________________
+/ Ships are safe in harbor, but they were \
+\ never meant to stay there.              /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
