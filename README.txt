@@ -1,6 +1,8 @@
  _________________________________________
-/ Ships are safe in harbor, but they were \
-\ never meant to stay there.              /
+/ Be careful of reading health books, you \
+| might die of a misprint.                |
+|                                         |
+\ -- Mark Twain                           /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
