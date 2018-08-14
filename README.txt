@@ -1,9 +1,6 @@
- ________________________________________
-/ Q: How many college football players   \
-| does it take to screw in a light bulb? |
-| A: Only one, but he gets three credits |
-\ for it.                                /
- ----------------------------------------
+ ___________________________
+< You will wish you hadn't. >
+ ---------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
