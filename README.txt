@@ -1,6 +1,6 @@
  _____________________________________
-/ Your goose is cooked. (Your current \
-\ chick is burned up too!)            /
+/ You have a deep appreciation of the \
+\ arts and music.                     /
  -------------------------------------
         \   ^__^
          \  (oo)\_______
