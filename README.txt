@@ -1,7 +1,7 @@
- _____________________________________
-/ You have a deep appreciation of the \
-\ arts and music.                     /
- -------------------------------------
+ ________________________________________
+/ Keep emotionally active. Cater to your \
+\ favorite neurosis.                     /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
