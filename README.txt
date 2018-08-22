@@ -1,7 +1,10 @@
- ________________________________________
-/ Keep emotionally active. Cater to your \
-\ favorite neurosis.                     /
- ----------------------------------------
+ _____________________________________
+/ As to the Adjective: when in doubt, \
+| strike it out.                      |
+|                                     |
+| -- Mark Twain, "Pudd'nhead Wilson's |
+\ Calendar"                           /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
