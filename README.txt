@@ -1,7 +1,10 @@
- ________________________________________
-/ Love is in the offing. Be affectionate \
-\ to one who adores you.                 /
- ----------------------------------------
+ _________________________________________
+/ He that is giddy thinks the world turns \
+| round.                                  |
+|                                         |
+| -- William Shakespeare, "The Taming of  |
+\ the Shrew"                              /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
