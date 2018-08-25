@@ -1,10 +1,7 @@
- _________________________________________
-/ He that is giddy thinks the world turns \
-| round.                                  |
-|                                         |
-| -- William Shakespeare, "The Taming of  |
-\ the Shrew"                              /
- -----------------------------------------
+ _____________________________________
+/ Q: What is the difference between a \
+\ duck? A: One leg is both the same.  /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
