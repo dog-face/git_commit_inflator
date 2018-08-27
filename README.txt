@@ -1,7 +1,9 @@
- _____________________________________
-/ Q: What is the difference between a \
-\ duck? A: One leg is both the same.  /
- -------------------------------------
+ ________________________________________
+/ Man is the only animal that blushes -- \
+| or needs to.                           |
+|                                        |
+\ -- Mark Twain                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
