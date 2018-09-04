@@ -1,7 +1,7 @@
- ___________________________________
-/ Do not sleep in a eucalyptus tree \
-\ tonight.                          /
- -----------------------------------
+ ________________________________________
+/ You will be awarded a medal for        \
+\ disregarding safety in saving someone. /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
