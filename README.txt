@@ -1,7 +1,7 @@
- ________________________________________
-/ You will be awarded a medal for        \
-\ disregarding safety in saving someone. /
- ----------------------------------------
+ __________________________________
+/ Your love life will be happy and \
+\ harmonious.                      /
+ ----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
