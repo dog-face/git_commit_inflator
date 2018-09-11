@@ -1,8 +1,9 @@
- _____________________
-/ Big book, big bore. \
-|                     |
-\ -- Callimachus      /
- ---------------------
+ _______________________________________
+/ I dote on his very absence.           \
+|                                       |
+| -- William Shakespeare, "The Merchant |
+\ of Venice"                            /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
