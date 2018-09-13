@@ -1,7 +1,7 @@
- ________________________________________
-/ Keep emotionally active. Cater to your \
-\ favorite neurosis.                     /
- ----------------------------------------
+ _________________________________________
+/ Are you ever going to do the dishes? Or \
+\ will you change your major to biology?  /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
