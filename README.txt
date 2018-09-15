@@ -1,7 +1,9 @@
- _________________________________________
-/ Are you ever going to do the dishes? Or \
-\ will you change your major to biology?  /
- -----------------------------------------
+ ________________________________________
+/ Q: How many supply-siders does it take \
+| to change a light bulb? A: None. The   |
+| darkness will cause the light bulb to  |
+\ change by itself.                      /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
