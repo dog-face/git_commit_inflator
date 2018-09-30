@@ -1,7 +1,9 @@
- _________________________________________
-/ Today is the tomorrow you worried about \
-\ yesterday.                              /
- -----------------------------------------
+ ________________________________________
+/ FORTUNE PROVIDES QUESTIONS FOR THE     \
+| GREAT ANSWERS: #4 A: Go west, young    |
+| man, go west! Q: What do wabbits do    |
+\ when they get tiwed of wunning awound? /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
