@@ -1,7 +1,7 @@
  _______________________________________
-/ Troubled day for virgins over 16 who  \
-| are beautiful and wealthy and live in |
-\ eucalyptus trees.                     /
+/ You had some happiness once, but your \
+| parents moved away, and you had to    |
+\ leave it behind.                      /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
