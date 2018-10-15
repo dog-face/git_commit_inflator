@@ -1,11 +1,7 @@
- ________________________________________
-/ Q: Why did the chicken cross the road? \
-| A: To see his friend Gregory peck.     |
-|                                        |
-| Q: Why did the chicken cross the       |
-| playground? A: To get to the other     |
-\ slide.                                 /
- ----------------------------------------
+ ______________________________________
+/ Q: What do you call a boomerang that \
+\ doesn't come back? A: A stick.       /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
