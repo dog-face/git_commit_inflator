@@ -1,7 +1,8 @@
- ______________________________________
-/ Q: What do you call a boomerang that \
-\ doesn't come back? A: A stick.       /
- --------------------------------------
+ _________________________________________
+/ He hath eaten me out of house and home. \
+|                                         |
+\ -- William Shakespeare, "Henry IV"      /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
