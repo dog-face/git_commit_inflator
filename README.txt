@@ -1,11 +1,7 @@
- ________________________________________
-/ There is always one thing to remember: \
-| writers are always selling somebody    |
-| out.                                   |
-|                                        |
-| -- Joan Didion, "Slouching Towards     |
-\ Bethlehem"                             /
- ----------------------------------------
+ _________________________________________
+/ Your aims are high, and you are capable \
+\ of much.                                /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
