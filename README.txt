@@ -1,7 +1,7 @@
- ______________________________________
-/ Q: What do they call the alphabet in \
-\ Arkansas? A: The impossible dream.   /
- --------------------------------------
+ _________________________________
+/ You will engage in a profitable \
+\ business activity.              /
+ ---------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
