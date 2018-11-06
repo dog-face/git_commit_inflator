@@ -1,11 +1,10 @@
- _______________________________________
-/ The difference between the right word \
-| and the almost right word is the      |
-| difference between lightning and the  |
-| lightning bug.                        |
-|                                       |
-\ -- Mark Twain                         /
- ---------------------------------------
+ ________________________________________
+/ When you are about to die, a wombat is \
+| better than no company at all.         |
+|                                        |
+| -- Roger Zelazny, "Doorways in the     |
+\ Sand"                                  /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
