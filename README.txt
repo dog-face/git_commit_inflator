@@ -1,6 +1,7 @@
  _________________________________________
-/ You have a strong appeal for members of \
-\ your own sex.                           /
+/ Q: What do you say to a New Yorker with \
+| a job? A: Big Mac, fries and a Coke,    |
+\ please!                                 /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
