@@ -1,7 +1,8 @@
  _________________________________________
-/ Q: What do you say to a New Yorker with \
-| a job? A: Big Mac, fries and a Coke,    |
-\ please!                                 /
+/ The first thing we do, let's kill all   \
+| the lawyers.                            |
+|                                         |
+\ -- Wm. Shakespeare, "Henry VI", Part IV /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
