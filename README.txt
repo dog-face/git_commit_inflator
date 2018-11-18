@@ -1,10 +1,11 @@
- _______________________________________
-/ "Life, loathe it or ignore it, you    \
-| can't like it."                       |
-|                                       |
-| -- Marvin, "Hitchhiker's Guide to the |
-\ Galaxy"                               /
- ---------------------------------------
+ _____________________________________
+/ It were not best that we should all \
+| think alike; it is difference of    |
+| opinion that makes horse-races.     |
+|                                     |
+| -- Mark Twain, "Pudd'nhead Wilson's |
+\ Calendar"                           /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
