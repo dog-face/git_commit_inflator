@@ -1,10 +1,9 @@
- ________________________________________
-/ Q: Why do the police always travel in  \
-| threes? A: One to do the reading, one  |
-| to do the writing, and the other keeps |
-|                                        |
-\ an eye on the two intellectuals.       /
- ----------------------------------------
+ ______________________________________
+/ O, what a tangled web we weave, When \
+| first we practice to deceive.        |
+|                                      |
+\ -- Sir Walter Scott, "Marmion"       /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
