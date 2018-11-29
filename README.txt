@@ -1,13 +1,9 @@
- _________________________________________
-/ In India, "cold weather" is merely a    \
-| conventional phrase and has come into   |
-| use through the necessity of having     |
-| some way to distinguish between weather |
-| which will melt a brass door-knob and   |
-| weather which will only make it mushy.  |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ ______________________________________
+/ Let me take you a button-hole lower. \
+|                                      |
+| -- William Shakespeare, "Love's      |
+\ Labour's Lost"                       /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
