@@ -1,6 +1,6 @@
  _________________________________________
-/ You worry too much about your job. Stop \
-\ it. You are not paid enough to worry.   /
+/ Q: What is the difference between Texas \
+\ and yogurt? A: Yogurt has culture.      /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
