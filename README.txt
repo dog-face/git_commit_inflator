@@ -1,8 +1,7 @@
- _______________________________________
-/ Troubled day for virgins over 16 who  \
-| are beautiful and wealthy and live in |
-\ eucalyptus trees.                     /
- ---------------------------------------
+ _____________________________________
+/ Don't get stuck in a closet -- wear \
+\ yourself out.                       /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
