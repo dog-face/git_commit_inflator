@@ -1,7 +1,9 @@
- _____________________________________
-/ Don't get stuck in a closet -- wear \
-\ yourself out.                       /
- -------------------------------------
+ _________________________________________
+/ The first thing we do, let's kill all   \
+| the lawyers.                            |
+|                                         |
+\ -- Wm. Shakespeare, "Henry VI", Part IV /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
