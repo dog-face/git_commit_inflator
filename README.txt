@@ -1,8 +1,8 @@
  _________________________________________
-/ The first thing we do, let's kill all   \
-| the lawyers.                            |
+/ I do desire we may be better strangers. \
 |                                         |
-\ -- Wm. Shakespeare, "Henry VI", Part IV /
+| -- William Shakespeare, "As You Like    |
+\ It"                                     /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
