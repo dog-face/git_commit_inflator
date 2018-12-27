@@ -1,9 +1,10 @@
- _________________________________________
-/ I do desire we may be better strangers. \
-|                                         |
-| -- William Shakespeare, "As You Like    |
-\ It"                                     /
- -----------------------------------------
+ ________________________________________
+/ Kiss me, Kate, we will be married o'   \
+| Sunday.                                |
+|                                        |
+| -- William Shakespeare, "The Taming of |
+\ the Shrew"                             /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
