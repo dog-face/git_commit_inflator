@@ -1,7 +1,10 @@
- _______________________________________
-/ You never hesitate to tackle the most \
-\ difficult problems.                   /
- ---------------------------------------
+ ________________________________________
+/ ... A solemn, unsmiling, sanctimonious \
+| old iceberg who looked like he was     |
+| waiting for a vacancy in the Trinity.  |
+|                                        |
+\ -- Mark Twain                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
