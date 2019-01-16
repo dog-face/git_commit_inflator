@@ -1,10 +1,7 @@
- ________________________________________
-/ ... A solemn, unsmiling, sanctimonious \
-| old iceberg who looked like he was     |
-| waiting for a vacancy in the Trinity.  |
-|                                        |
-\ -- Mark Twain                          /
- ----------------------------------------
+ ___________________________________
+/ You will be called upon to help a \
+\ friend in trouble.                /
+ -----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
