@@ -1,9 +1,8 @@
- _______________________________________
-/ Q: How many IBM CPU's does it take to \
-| do a logical right shift? A: 33. 1 to |
-| hold the bits and 32 to push the      |
-\ register.                             /
- ---------------------------------------
+ ________________________________________
+/ Your analyst has you mixed up with     \
+| another patient. Don't believe a thing |
+\ he tells you.                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
