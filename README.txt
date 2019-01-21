@@ -1,8 +1,6 @@
- ________________________________________
-/ Your analyst has you mixed up with     \
-| another patient. Don't believe a thing |
-\ he tells you.                          /
- ----------------------------------------
+ ________________________
+< Snow Day -- stay home. >
+ ------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
