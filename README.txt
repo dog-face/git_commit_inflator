@@ -1,7 +1,8 @@
- _______________________________________
-/ This will be a memorable month -- no  \
-\ matter how hard you try to forget it. /
- ---------------------------------------
+ ______________________________________
+/ Q: How did you get into artificial   \
+| intelligence? A: Seemed logical -- I |
+\ didn't have any real intelligence.   /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
