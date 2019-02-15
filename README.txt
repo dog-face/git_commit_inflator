@@ -1,11 +1,11 @@
- _______________________________________
-/ One of the most striking differences  \
-| between a cat and a lie is that a cat |
-| has only nine lives.                  |
-|                                       |
-| -- Mark Twain, "Pudd'nhead Wilson's   |
-\ Calendar"                             /
- ---------------------------------------
+ ________________________________________
+/ He draweth out the thread of his       \
+| verbosity finer than the staple of his |
+| argument.                              |
+|                                        |
+| -- William Shakespeare, "Love's        |
+\ Labour's Lost"                         /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
