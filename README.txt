@@ -1,7 +1,7 @@
- ________________________________________
-/ You are sick, twisted and perverted. I \
-\ like that in a person.                 /
- ----------------------------------------
+ _________________________________________
+/ You two ought to be more careful--your  \
+\ love could drag on for years and years. /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
