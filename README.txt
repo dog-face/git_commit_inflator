@@ -1,6 +1,10 @@
  _________________________________________
-/ You two ought to be more careful--your  \
-\ love could drag on for years and years. /
+/ There is no hunting like the hunting of \
+| man, and those who have hunted armed    |
+| men long enough and liked it, never     |
+| care for anything else thereafter.      |
+|                                         |
+\ -- Ernest Hemingway                     /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
