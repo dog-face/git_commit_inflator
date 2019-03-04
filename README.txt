@@ -1,6 +1,6 @@
  ______________________________________
-/ You're not my type. For that matter, \
-\ you're not even my species!!!        /
+/ Q: How much does it cost to ride the \
+\ Unibus? A: 2 bits.                   /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
