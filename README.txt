@@ -1,7 +1,7 @@
- ______________________________________
-/ Q: How much does it cost to ride the \
-\ Unibus? A: 2 bits.                   /
- --------------------------------------
+ _________________________________________
+/ Q: What do you call a blind, deaf-mute, \
+\ quadraplegic Virginian? A: Trustworthy. /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
