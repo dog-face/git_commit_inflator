@@ -1,7 +1,12 @@
- _________________________________________
-/ Q: What's yellow, and equivalent to the \
-\ Axiom of Choice? A: Zorn's Lemon.       /
- -----------------------------------------
+ ________________________________________
+/ If you pick up a starving dog and make \
+| him prosperous, he will not bite you.  |
+| This is the principal difference       |
+| between a dog and a man.               |
+|                                        |
+| -- Mark Twain, "Pudd'nhead Wilson's    |
+\ Calendar"                              /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
