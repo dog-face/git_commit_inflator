@@ -1,8 +1,9 @@
- ________________________________________
-/ Q: What's the difference between Bell  \
-| Labs and the Boy Scouts of America? A: |
-\ The Boy Scouts have adult supervision. /
- ----------------------------------------
+ ______________________________________
+/ You have an unusual magnetic         \
+| personality. Don't walk too close to |
+| metal objects which are not fastened |
+\ down.                                /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
