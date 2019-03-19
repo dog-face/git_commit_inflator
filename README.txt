@@ -1,9 +1,7 @@
- ______________________________________
-/ You have an unusual magnetic         \
-| personality. Don't walk too close to |
-| metal objects which are not fastened |
-\ down.                                /
- --------------------------------------
+ _____________________________________
+/ All the troubles you have will pass \
+\ away very quickly.                  /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
