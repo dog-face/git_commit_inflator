@@ -1,11 +1,7 @@
- ________________________________________
-/ It is by the fortune of God that, in   \
-| this country, we have three benefits:  |
-| freedom of speech, freedom of thought, |
-| and the wisdom never to use either.    |
-|                                        |
-\ -- Mark Twain                          /
- ----------------------------------------
+ _______________________________________
+/ You definitely intend to start living \
+\ sometime soon.                        /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
