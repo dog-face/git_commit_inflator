@@ -1,7 +1,7 @@
- _________________________________________
-/ Best of all is never to have been born. \
-\ Second best is to die soon.             /
- -----------------------------------------
+ __________________________________
+/ Break into jail and claim police \
+\ brutality.                       /
+ ----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
