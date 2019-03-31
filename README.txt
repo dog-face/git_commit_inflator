@@ -1,6 +1,5 @@
  ______________________________________
-/ Hope that the day after you die is a \
-\ nice day.                            /
+< You are number 6! Who is number one? >
  --------------------------------------
         \   ^__^
          \  (oo)\_______
