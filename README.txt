@@ -1,6 +1,6 @@
  _______________________________________
-/ You seek to shield those you love and \
-\ you like the role of the provider.    /
+/ Q: Why don't lawyers go to the beach? \
+\ A: The cats keep trying to bury them. /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
