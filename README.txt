@@ -1,8 +1,7 @@
- _________________________________________
-/ Q: What's the difference between a Mac  \
-| and an Etch-a-Sketch? A: You don't have |
-\ to shake the Mac to clear the screen.   /
- -----------------------------------------
+ ______________________________________
+/ Never be led astray onto the path of \
+\ virtue.                              /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
