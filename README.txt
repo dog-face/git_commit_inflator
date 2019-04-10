@@ -1,6 +1,5 @@
  ______________________________________
-/ Never be led astray onto the path of \
-\ virtue.                              /
+< Stay away from flying saucers today. >
  --------------------------------------
         \   ^__^
          \  (oo)\_______
