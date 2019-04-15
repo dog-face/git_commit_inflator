@@ -1,11 +1,9 @@
- ________________________________________
-/ There is always one thing to remember: \
-| writers are always selling somebody    |
-| out.                                   |
-|                                        |
-| -- Joan Didion, "Slouching Towards     |
-\ Bethlehem"                             /
- ----------------------------------------
+ ______________________________________
+/ O, what a tangled web we weave, When \
+| first we practice to deceive.        |
+|                                      |
+\ -- Sir Walter Scott, "Marmion"       /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
