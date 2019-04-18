@@ -1,7 +1,10 @@
  ________________________________________
-/ Q: How many lawyers does it take to    \
-| change a light bulb? A: One. Only it's |
-\ his light bulb when he's done.         /
+/ A banker is a fellow who lends you his \
+| umbrella when the sun is shining and   |
+| wants it back the minute it begins to  |
+| rain.                                  |
+|                                        |
+\ -- Mark Twain                          /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
