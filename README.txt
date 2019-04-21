@@ -1,8 +1,12 @@
  ______________________________________
-/ Let me take you a button-hole lower. \
+/ April 1                              \
 |                                      |
-| -- William Shakespeare, "Love's      |
-\ Labour's Lost"                       /
+| This is the day upon which we are    |
+| reminded of what we are on the other |
+| three hundred and sixty-four.        |
+|                                      |
+| -- Mark Twain, "Pudd'nhead Wilson's  |
+\ Calendar"                            /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
