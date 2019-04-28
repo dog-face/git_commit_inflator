@@ -1,7 +1,7 @@
  ________________________________________
-/ Q: Why did the lone ranger kill Tonto? \
-| A: He found out what "kimosabe" really |
-\ means.                                 /
+/ What no spouse of a writer can ever    \
+| understand is that a writer is working |
+\ when he's staring out the window.      /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
