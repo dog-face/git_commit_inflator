@@ -1,7 +1,7 @@
- _________________________________________
-/ Q: What lies on the bottom of the ocean \
-\ and twitches? A: A nervous wreck.       /
- -----------------------------------------
+ ________________________________________
+/ Q: Why was Stonehenge abandoned? A: It \
+\ wasn't IBM compatible.                 /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
