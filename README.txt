@@ -1,6 +1,5 @@
  ________________________________________
-/ Q: Why was Stonehenge abandoned? A: It \
-\ wasn't IBM compatible.                 /
+< You have taken yourself too seriously. >
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
