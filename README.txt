@@ -1,7 +1,8 @@
- ______________________________________
-/ Q: What do you call a boomerang that \
-\ doesn't come back? A: A stick.       /
- --------------------------------------
+ _________________________________________
+/ While you recently had your problems on \
+| the run, they've regrouped and are      |
+\ making another attack.                  /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
