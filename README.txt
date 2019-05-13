@@ -1,8 +1,7 @@
- _________________________________________
-/ While you recently had your problems on \
-| the run, they've regrouped and are      |
-\ making another attack.                  /
- -----------------------------------------
+ ______________________________________
+/ You will remember something that you \
+\ should not have forgotten.           /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
