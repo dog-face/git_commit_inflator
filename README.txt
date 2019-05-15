@@ -1,10 +1,8 @@
- _______________________________________
-/ Don't go around saying the world owes \
-| you a living. The world owes you      |
-| nothing. It was here first.           |
-|                                       |
-\ -- Mark Twain                         /
- ---------------------------------------
+ _____________________________________
+/ You're growing out of some of your  \
+| problems, but there are others that |
+\ you're growing into.                /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
