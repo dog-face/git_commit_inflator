@@ -1,8 +1,8 @@
- ______________________________________
-/ You're definitely on their list. The \
-| question to ask next is what list it |
-\ is.                                  /
- --------------------------------------
+ _________________________________________
+/ FORTUNE PROVIDES QUESTIONS FOR THE      \
+| GREAT ANSWERS: #19 A: To be or not to   |
+\ be. Q: What is the square root of 4b^2? /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
