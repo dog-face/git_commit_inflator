@@ -1,7 +1,9 @@
  _________________________________________
-/ FORTUNE PROVIDES QUESTIONS FOR THE      \
-| GREAT ANSWERS: #19 A: To be or not to   |
-\ be. Q: What is the square root of 4b^2? /
+/ Zounds! I was never so bethumped with   \
+| words since I first called my brother's |
+| father dad.                             |
+|                                         |
+\ -- William Shakespeare, "Kind John"     /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
