@@ -1,10 +1,8 @@
- _________________________________________
-/ Zounds! I was never so bethumped with   \
-| words since I first called my brother's |
-| father dad.                             |
-|                                         |
-\ -- William Shakespeare, "Kind John"     /
- -----------------------------------------
+ ______________________________________
+/ Good night to spend with family, but \
+| avoid arguments with your mate's new |
+\ lover.                               /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
