@@ -1,6 +1,10 @@
- ________________________________________
-< Stay away from hurricanes for a while. >
- ----------------------------------------
+ _________________________________________
+/ They spell it "da Vinci" and pronounce  \
+| it "da Vinchy". Foreigners always spell |
+| better than they pronounce.             |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
