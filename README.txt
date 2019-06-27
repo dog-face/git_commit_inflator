@@ -1,8 +1,7 @@
- ________________________
-/ I'll burn my books.    \
-|                        |
-\ -- Christopher Marlowe /
- ------------------------
+ ________________________________________
+/ You possess a mind not merely twisted, \
+\ but actually sprained.                 /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
