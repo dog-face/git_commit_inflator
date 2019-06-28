@@ -1,7 +1,7 @@
- ________________________________________
-/ You possess a mind not merely twisted, \
-\ but actually sprained.                 /
- ----------------------------------------
+ ______________________________________
+/ You have an unusual understanding of \
+\ the problems of human relationships. /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
