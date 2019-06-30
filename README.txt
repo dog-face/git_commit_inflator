@@ -1,18 +1,13 @@
- _________________________________________
-/ Many enraged psychiatrists are inciting \
-| a weary butcher. The butcher is weary   |
-| and tired because he has cut meat and   |
-| steak and lamb for hours and weeks. He  |
-| does not desire to chant about anything |
-| with raving psychiatrists, but he sings |
-| about his gingivectomist, he dreams     |
-| about a single cosmologist, he thinks   |
-| about his dog. The dog is named         |
-| Herbert.                                |
-|                                         |
-| -- Racter, "The Policeman's Beard is    |
-\ Half-Constructed"                       /
- -----------------------------------------
+ ________________________________________
+/ I've touch'd the highest point of all  \
+| my greatness; And from that full       |
+| meridian of my glory I haste now to my |
+| setting. I shall fall, Like a bright   |
+| exhalation in the evening And no man   |
+| see me more.                           |
+|                                        |
+\ -- Shakespeare                         /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
