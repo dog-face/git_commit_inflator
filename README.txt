@@ -1,8 +1,8 @@
- _______________________________________
-/ Troubled day for virgins over 16 who  \
-| are beautiful and wealthy and live in |
-\ eucalyptus trees.                     /
- ---------------------------------------
+ _____________________________________
+/ You're growing out of some of your  \
+| problems, but there are others that |
+\ you're growing into.                /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
