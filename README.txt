@@ -1,7 +1,10 @@
- _________________________________________
-/ You are deeply attached to your friends \
-\ and acquaintances.                      /
- -----------------------------------------
+ ________________________________________
+/ No group of professionals meets except \
+| to conspire against the public at      |
+| large.                                 |
+|                                        |
+\ -- Mark Twain                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
