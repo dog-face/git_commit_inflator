@@ -1,9 +1,6 @@
  ________________________________________
-/ No group of professionals meets except \
-| to conspire against the public at      |
-| large.                                 |
-|                                        |
-\ -- Mark Twain                          /
+/ You will always have good luck in your \
+\ personal affairs.                      /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
