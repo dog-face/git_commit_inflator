@@ -1,8 +1,9 @@
- _______________________________________
-/ Q: What's the difference between USL  \
-| and the Titanic? A: The Titanic had a |
-\ band.                                 /
- ---------------------------------------
+ ________________________________________
+/ Q: How many college football players   \
+| does it take to screw in a light bulb? |
+| A: Only one, but he gets three credits |
+\ for it.                                /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
