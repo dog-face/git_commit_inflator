@@ -1,8 +1,10 @@
- ________________________
-/ I'll burn my books.    \
-|                        |
-\ -- Christopher Marlowe /
- ------------------------
+ ________________________________________
+/ It is a wise father that knows his own \
+| child.                                 |
+|                                        |
+| -- William Shakespeare, "The Merchant  |
+\ of Venice"                             /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
