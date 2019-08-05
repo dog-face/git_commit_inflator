@@ -1,10 +1,7 @@
- ________________________________________
-/ It is a wise father that knows his own \
-| child.                                 |
-|                                        |
-| -- William Shakespeare, "The Merchant  |
-\ of Venice"                             /
- ----------------------------------------
+ ____________________________
+/ Your lucky number has been \
+\ disconnected.              /
+ ----------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
