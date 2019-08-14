@@ -1,7 +1,10 @@
- _________________________________________
-/ Q: What lies on the bottom of the ocean \
-\ and twitches? A: A nervous wreck.       /
- -----------------------------------------
+ _______________________________________
+/ Work consists of whatever a body is   \
+| obliged to do. Play consists of       |
+| whatever a body is not obliged to do. |
+|                                       |
+\ -- Mark Twain                         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
