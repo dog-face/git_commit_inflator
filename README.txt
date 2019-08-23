@@ -1,9 +1,6 @@
  _________________________________________
-/ They spell it "da Vinci" and pronounce  \
-| it "da Vinchy". Foreigners always spell |
-| better than they pronounce.             |
-|                                         |
-\ -- Mark Twain                           /
+/ Tuesday is the Wednesday of the rest of \
+\ your life.                              /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
