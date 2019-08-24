@@ -1,6 +1,6 @@
  _________________________________________
-/ Tuesday is the Wednesday of the rest of \
-\ your life.                              /
+/ If you stand on your head, you will get \
+\ footprints in your hair.                /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
