@@ -1,7 +1,9 @@
- _________________________________________
-/ If you stand on your head, you will get \
-\ footprints in your hair.                /
- -----------------------------------------
+ ______________________________________
+/ "Not Hercules could have knock'd out \
+| his brains, for he had none."        |
+|                                      |
+\ -- Shakespeare                       /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
