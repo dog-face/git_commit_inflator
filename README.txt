@@ -1,10 +1,9 @@
- ________________________________________
-/ He jests at scars who never felt a     \
-| wound.                                 |
-|                                        |
-| -- Shakespeare, "Romeo and Juliet, II. |
-\ 2"                                     /
- ----------------------------------------
+ ____________________________________
+/ Suspicion always haunts the guilty \
+| mind.                              |
+|                                    |
+\ -- Wm. Shakespeare                 /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
