@@ -1,8 +1,8 @@
  ____________________________________
-/ Suspicion always haunts the guilty \
-| mind.                              |
+/ An honest tale speeds best being   \
+| plainly told.                      |
 |                                    |
-\ -- Wm. Shakespeare                 /
+\ -- William Shakespeare, "Henry VI" /
  ------------------------------------
         \   ^__^
          \  (oo)\_______
