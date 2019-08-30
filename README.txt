@@ -1,9 +1,7 @@
- ____________________________________
-/ An honest tale speeds best being   \
-| plainly told.                      |
-|                                    |
-\ -- William Shakespeare, "Henry VI" /
- ------------------------------------
+ _________________________________________
+/ You will be imprisoned for contributing \
+\ your time and skill to a bank robbery.  /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
