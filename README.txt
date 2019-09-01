@@ -1,7 +1,8 @@
- ___________________________________
-/ Your nature demands love and your \
-\ happiness depends on it.          /
- -----------------------------------
+ _________________________________________
+/ How apt the poor are to be proud.       \
+|                                         |
+\ -- William Shakespeare, "Twelfth-Night" /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
