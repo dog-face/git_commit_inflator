@@ -1,8 +1,9 @@
- _________________________________________
-/ How apt the poor are to be proud.       \
-|                                         |
-\ -- William Shakespeare, "Twelfth-Night" /
- -----------------------------------------
+ ________________________________________
+/ Alas, how love can trifle with itself! \
+|                                        |
+| -- William Shakespeare, "The Two       |
+\ Gentlemen of Verona"                   /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
