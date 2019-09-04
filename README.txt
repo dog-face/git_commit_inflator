@@ -1,9 +1,8 @@
- ________________________________________
-/ Alas, how love can trifle with itself! \
-|                                        |
-| -- William Shakespeare, "The Two       |
-\ Gentlemen of Verona"                   /
- ----------------------------------------
+ _________________________________________
+/ FORTUNE PROVIDES QUESTIONS FOR THE      \
+| GREAT ANSWERS: #19 A: To be or not to   |
+\ be. Q: What is the square root of 4b^2? /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
