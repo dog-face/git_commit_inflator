@@ -1,6 +1,6 @@
  ______________________________________
-/ You teach best what you most need to \
-\ learn.                               /
+/ Another good night not to sleep in a \
+\ eucalyptus tree.                     /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
