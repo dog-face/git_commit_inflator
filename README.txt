@@ -1,6 +1,8 @@
  _________________________________________
-/ Ships are safe in harbor, but they were \
-\ never meant to stay there.              /
+/ I think we are in Rats' Alley where the \
+| dead men lost their bones.              |
+|                                         |
+\ -- T.S. Eliot                           /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
