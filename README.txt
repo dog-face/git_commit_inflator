@@ -1,9 +1,7 @@
- _________________________________________
-/ I think we are in Rats' Alley where the \
-| dead men lost their bones.              |
-|                                         |
-\ -- T.S. Eliot                           /
- -----------------------------------------
+ _______________________________________
+/ Your mode of life will be changed for \
+\ the better because of good news soon. /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
