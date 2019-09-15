@@ -1,11 +1,12 @@
- ________________________________________
-/ It is often the case that the man who  \
-| can't tell a lie thinks he is the best |
-| judge of one.                          |
-|                                        |
-| -- Mark Twain, "Pudd'nhead Wilson's    |
-\ Calendar"                              /
- ----------------------------------------
+ _________________________________________
+/ "I understand this is your first dead   \
+| client," Sabian was saying. The         |
+| absurdity of the statement made me want |
+| to laugh but they don't call me Deadpan |
+| Allie and lie.                          |
+|                                         |
+\ -- Pat Cadigan, "Mindplayers"           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
