@@ -1,7 +1,7 @@
- __________________________________
-/ You will overcome the attacks of \
-\ jealous associates.              /
- ----------------------------------
+ ______________________________________
+/ A few hours grace before the madness \
+\ begins again.                        /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
