@@ -1,6 +1,6 @@
  _________________________________________
-/ You are a very redundant person, that's \
-\ what kind of person you are.            /
+/ Truth will out this morning. (Which may \
+\ really mess things up.)                 /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
