@@ -1,7 +1,8 @@
- _________________________________________
-/ Truth will out this morning. (Which may \
-\ really mess things up.)                 /
- -----------------------------------------
+ _______________________________________
+/ Q: What's the difference between USL  \
+| and the Titanic? A: The Titanic had a |
+\ band.                                 /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
