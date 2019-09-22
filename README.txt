@@ -1,7 +1,7 @@
- _________________________________________
-/ You worry too much about your job. Stop \
-\ it. You are not paid enough to worry.   /
- -----------------------------------------
+ _______________________________________
+/ You will feel hungry again in another \
+\ hour.                                 /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
