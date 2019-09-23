@@ -1,6 +1,6 @@
  _______________________________________
-/ You will feel hungry again in another \
-\ hour.                                 /
+/ You never hesitate to tackle the most \
+\ difficult problems.                   /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
