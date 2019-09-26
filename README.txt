@@ -1,11 +1,12 @@
  _________________________________________
-/ Q: How many bureaucrats does it take to \
-| screw in a light bulb? A: Two. One to   |
-| assure everyone that everything         |
-| possible is being                       |
+/ Q: How do you shoot a blue elephant? A: \
+| With a blue-elephant gun.               |
 |                                         |
-| done while the other screws the bulb    |
-\ into the water faucet.                  /
+| Q: How do you shoot a pink elephant? A: |
+| Twist its trunk until it turns blue,    |
+| then shoot it with                      |
+|                                         |
+\ a blue-elephant gun.                    /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
