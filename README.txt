@@ -1,7 +1,8 @@
- _____________________________________
-/ Today is National Existential Ennui \
-\ Awareness Day.                      /
- -------------------------------------
+ _________________________________________
+/ You will stop at nothing to reach your  \
+| objective, but only because your brakes |
+\ are defective.                          /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
