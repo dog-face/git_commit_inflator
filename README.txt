@@ -1,8 +1,6 @@
- _________________________________________
-/ You will stop at nothing to reach your  \
-| objective, but only because your brakes |
-\ are defective.                          /
- -----------------------------------------
+ ________________________________________
+< The time is right to make new friends. >
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
