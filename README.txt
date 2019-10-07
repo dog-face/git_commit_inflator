@@ -1,7 +1,7 @@
- ________________________________________
-/ You possess a mind not merely twisted, \
-\ but actually sprained.                 /
- ----------------------------------------
+ _________________________________
+/ Tonight's the night: Sleep in a \
+\ eucalyptus tree.                /
+ ---------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
