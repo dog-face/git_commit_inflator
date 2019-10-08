@@ -1,7 +1,7 @@
- _________________________________
-/ Tonight's the night: Sleep in a \
-\ eucalyptus tree.                /
- ---------------------------------
+ _________________________________________
+/ You will always get the greatest        \
+\ recognition for the job you least like. /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
