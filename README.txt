@@ -1,7 +1,8 @@
- _________________________________________
-/ You will always get the greatest        \
-\ recognition for the job you least like. /
- -----------------------------------------
+ ________________________
+/ Don't Worry, Be Happy. \
+|                        |
+\ -- Meher Baba          /
+ ------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
