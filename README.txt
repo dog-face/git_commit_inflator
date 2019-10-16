@@ -1,7 +1,8 @@
- _____________________________________
-/ Fine day to work off excess energy. \
-\ Steal something heavy.              /
- -------------------------------------
+ ________________________________________
+/ Give thought to your reputation.       \
+| Consider changing name and moving to a |
+\ new town.                              /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
