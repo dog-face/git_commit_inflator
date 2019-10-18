@@ -1,8 +1,7 @@
- ________________________________________
-/ Give thought to your reputation.       \
-| Consider changing name and moving to a |
-\ new town.                              /
- ----------------------------------------
+ ______________________________________
+/ A tall, dark stranger will have more \
+\ fun than you.                        /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
