@@ -1,7 +1,8 @@
- ______________________________________
-/ A tall, dark stranger will have more \
-\ fun than you.                        /
- --------------------------------------
+ _______________________________________
+/ Tomorrow, this will be part of the    \
+| unchangeable past but fortunately, it |
+\ can still be changed today.           /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
