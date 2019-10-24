@@ -1,13 +1,7 @@
- ______________________________________
-/ April 1                              \
-|                                      |
-| This is the day upon which we are    |
-| reminded of what we are on the other |
-| three hundred and sixty-four.        |
-|                                      |
-| -- Mark Twain, "Pudd'nhead Wilson's  |
-\ Calendar"                            /
- --------------------------------------
+ ____________________________________
+/ Is that really YOU that is reading \
+\ this?                              /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
