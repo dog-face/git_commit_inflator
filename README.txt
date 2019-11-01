@@ -1,10 +1,11 @@
- _________________________________________
-/ Q: Why do ducks have big flat feet? A:  \
-| To stamp out forest fires.              |
-|                                         |
-| Q: Why do elephants have big flat feet? |
-\ A: To stamp out flaming ducks.          /
- -----------------------------------------
+ _____________________________________
+/ Writing is easy; all you do is sit  \
+| staring at the blank sheet of paper |
+| until drops of blood form on your   |
+| forehead.                           |
+|                                     |
+\ -- Gene Fowler                      /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
