@@ -1,11 +1,7 @@
- _____________________________________
-/ Writing is easy; all you do is sit  \
-| staring at the blank sheet of paper |
-| until drops of blood form on your   |
-| forehead.                           |
-|                                     |
-\ -- Gene Fowler                      /
- -------------------------------------
+ ________________________________________
+/ Green light in A.M. for new projects.  \
+\ Red light in P.M. for traffic tickets. /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
