@@ -1,6 +1,10 @@
  ________________________________________
-/ Green light in A.M. for new projects.  \
-\ Red light in P.M. for traffic tickets. /
+/ This is the first age that's paid much \
+| attention to the future, which is a    |
+| little ironic since we may not have    |
+| one.                                   |
+|                                        |
+\ -- Arthur Clarke                       /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
