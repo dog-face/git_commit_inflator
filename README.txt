@@ -1,7 +1,8 @@
- ______________________________________
-/ You will live a long, healthy, happy \
-\ life and make bags of money.         /
- --------------------------------------
+ ________________________________________
+/ You can do very well in speculation    \
+| where land or anything to do with dirt |
+\ is concerned.                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
