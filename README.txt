@@ -1,8 +1,6 @@
- ________________________________________
-/ You can do very well in speculation    \
-| where land or anything to do with dirt |
-\ is concerned.                          /
- ----------------------------------------
+ ________________________
+< Snow Day -- stay home. >
+ ------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
