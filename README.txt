@@ -1,8 +1,7 @@
- ______________________________________
-/ Q: What does it say on the bottom of \
-| Coke cans in North Dakota? A: Open   |
-\ other end.                           /
- --------------------------------------
+ _______________________________________
+/ You will give someone a piece of your \
+\ mind, which you can ill afford.       /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
