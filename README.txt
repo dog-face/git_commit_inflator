@@ -1,8 +1,8 @@
- ____________________________________
-/ This life is yours. Some of it was \
-| given to you; the rest, you made   |
-\ yourself.                          /
- ------------------------------------
+ ______________________________________
+/ What I tell you three times is true. \
+|                                      |
+\ -- Lewis Carroll                     /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
