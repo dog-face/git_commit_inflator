@@ -1,9 +1,8 @@
- _________________________________________
-/ Patch griefs with proverbs.             \
-|                                         |
-| -- William Shakespeare, "Much Ado About |
-\ Nothing"                                /
- -----------------------------------------
+ _____________________________________
+/ Q: What do you call a half-dozen    \
+| Indians with Asian flu? A: Six sick |
+\ Sikhs (sic).                        /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
