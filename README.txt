@@ -1,8 +1,8 @@
- _____________________________________
-/ Q: What do you call a half-dozen    \
-| Indians with Asian flu? A: Six sick |
-\ Sikhs (sic).                        /
- -------------------------------------
+ ____________________________________
+/ Small things make base men proud.  \
+|                                    |
+\ -- William Shakespeare, "Henry VI" /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
