@@ -1,8 +1,9 @@
- ____________________________________
-/ Small things make base men proud.  \
-|                                    |
-\ -- William Shakespeare, "Henry VI" /
- ------------------------------------
+ ________________________________________
+/ Q: What looks like a cat, flies like a \
+| bat, brays like a donkey, and          |
+|                                        |
+\ plays like a monkey? A: Nothing.       /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
