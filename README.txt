@@ -1,8 +1,10 @@
  ________________________________________
-/ Q: What looks like a cat, flies like a \
-| bat, brays like a donkey, and          |
+/ Consider well the proportions of       \
+| things. It is better to be a young     |
+| June-bug than an old bird of paradise. |
 |                                        |
-\ plays like a monkey? A: Nothing.       /
+| -- Mark Twain, "Pudd'nhead Wilson's    |
+\ Calendar"                              /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
