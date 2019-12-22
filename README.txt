@@ -1,14 +1,7 @@
- ________________________________
-/ To be or not to be.            \
-|                                |
-| -- Shakespeare To do is to be. |
-|                                |
-| -- Nietzsche To be is to do.   |
-|                                |
-| -- Sartre Do be do be do.      |
-|                                |
-\ -- Sinatra                     /
- --------------------------------
+ _________________________________
+/ Q: What is the sound of one cat \
+\ napping? A: Mu.                 /
+ ---------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
