@@ -1,7 +1,8 @@
- _______________________________________
-/ You will feel hungry again in another \
-\ hour.                                 /
- ---------------------------------------
+ ______________________________________
+/ Your reasoning is excellent -- it's  \
+| only your basic assumptions that are |
+\ wrong.                               /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
