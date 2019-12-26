@@ -1,8 +1,7 @@
- ______________________________________
-/ Your reasoning is excellent -- it's  \
-| only your basic assumptions that are |
-\ wrong.                               /
- --------------------------------------
+ ____________________________________
+/ You will be a winner today. Pick a \
+\ fight with a four-year-old.        /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
