@@ -1,10 +1,22 @@
- ____________________________________
-/ Q: What does a WASP Mom make for   \
-| dinner? A: A crisp salad, a hearty |
-| soup, a lovely entree, followed by |
-|                                    |
-\ a delicious dessert.               /
- ------------------------------------
+ _________________________________________
+/ Q: How many Californians does it take   \
+| to screw in a light bulb? A: Five. One  |
+| to screw in the light bulb and four to  |
+| share the                               |
+|                                         |
+| experience. (Actually, Californians     |
+| don't screw in                          |
+|                                         |
+| light bulbs, they screw in hot tubs.)   |
+|                                         |
+| Q: How many Oregonians does it take to  |
+| screw in a light bulb? A: Three. One to |
+| screw in the light bulb and two to fend |
+| off all                                 |
+|                                         |
+| those Californians trying to share the  |
+\ experience.                             /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
