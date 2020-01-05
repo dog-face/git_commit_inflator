@@ -1,7 +1,7 @@
- ________________________________________
-/ Think twice before speaking, but don't \
-\ say "think think click click".         /
- ----------------------------------------
+ ______________________________________
+/ You are a fluke of the universe; you \
+\ have no right to be here.            /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
