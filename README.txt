@@ -1,6 +1,6 @@
  ________________________________________
-/ Q: Why was Stonehenge abandoned? A: It \
-\ wasn't IBM compatible.                 /
+/ Celebrate Hannibal Day this year. Take \
+\ an elephant to lunch.                  /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
