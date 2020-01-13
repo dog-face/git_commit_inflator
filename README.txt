@@ -1,6 +1,8 @@
- __________________________________
-< Someone is speaking well of you. >
- ----------------------------------
+ ________________________________________
+/ Your analyst has you mixed up with     \
+| another patient. Don't believe a thing |
+\ he tells you.                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
