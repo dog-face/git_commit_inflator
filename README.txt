@@ -1,8 +1,7 @@
- ________________________________________
-/ Your analyst has you mixed up with     \
-| another patient. Don't believe a thing |
-\ he tells you.                          /
- ----------------------------------------
+ _____________________________________
+/ Future looks spotty. You will spill \
+\ soup in late evening.               /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
