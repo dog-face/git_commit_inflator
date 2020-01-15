@@ -1,7 +1,7 @@
- _____________________________________
-/ Future looks spotty. You will spill \
-\ soup in late evening.               /
- -------------------------------------
+ ______________________________________
+/ Your own qualities will help prevent \
+\ your advancement in the world.       /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
