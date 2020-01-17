@@ -1,7 +1,6 @@
- ______________________________________
-/ Your own qualities will help prevent \
-\ your advancement in the world.       /
- --------------------------------------
+ ________________________________________
+< You will be misunderstood by everyone. >
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
