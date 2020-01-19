@@ -1,7 +1,9 @@
- ___________________________________
-/ Time to be aggressive. Go after a \
-\ tattooed Virgo.                   /
- -----------------------------------
+ ________________________________________
+/ No violence, gentlemen -- no violence, \
+| I beg of you! Consider the furniture!  |
+|                                        |
+\ -- Sherlock Holmes                     /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
