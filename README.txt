@@ -1,8 +1,6 @@
  ________________________________________
-/ No violence, gentlemen -- no violence, \
-| I beg of you! Consider the furniture!  |
-|                                        |
-\ -- Sherlock Holmes                     /
+/ Try the Moo Shu Pork. It is especially \
+\ good today.                            /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
