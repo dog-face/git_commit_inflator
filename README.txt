@@ -1,7 +1,9 @@
- ________________________________________
-/ Try the Moo Shu Pork. It is especially \
-\ good today.                            /
- ----------------------------------------
+ _________________________________________
+/ Always do right. This will gratify some \
+| people and astonish the rest.           |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
