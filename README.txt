@@ -1,9 +1,8 @@
- _________________________________________
-/ Always do right. This will gratify some \
-| people and astonish the rest.           |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ _____________________________________
+/ Q: How do you stop an elephant from \
+| charging? A: Take away his credit   |
+\ cards.                              /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
