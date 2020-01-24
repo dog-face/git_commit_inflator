@@ -1,8 +1,7 @@
- _____________________________________
-/ Q: How do you stop an elephant from \
-| charging? A: Take away his credit   |
-\ cards.                              /
- -------------------------------------
+ ___________________________________
+/ Your heart is pure, and your mind \
+\ clear, and your soul devout.      /
+ -----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
