@@ -1,6 +1,9 @@
- _______________________
-< Blow it out your ear. >
- -----------------------
+ ______________________________________
+/ If two people love each other, there \
+| can be no happy end to it.           |
+|                                      |
+\ -- Ernest Hemingway                  /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
