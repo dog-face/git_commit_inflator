@@ -1,9 +1,7 @@
- ______________________________________
-/ If two people love each other, there \
-| can be no happy end to it.           |
-|                                      |
-\ -- Ernest Hemingway                  /
- --------------------------------------
+ _____________________________________
+/ You have the power to influence all \
+\ with whom you come in contact.      /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
