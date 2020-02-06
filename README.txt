@@ -1,7 +1,9 @@
- ______________________________________
-/ You could live a better life, if you \
-\ had a better mind and a better body. /
- --------------------------------------
+ ________________________________________
+/ There is no distinctly native American \
+| criminal class except Congress.        |
+|                                        |
+\ -- Mark Twain                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
