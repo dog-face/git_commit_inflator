@@ -1,9 +1,10 @@
- ______________________________________
-/ "Not Hercules could have knock'd out \
-| his brains, for he had none."        |
-|                                      |
-\ -- Shakespeare                       /
- --------------------------------------
+ ________________________________________
+/ Q: What do you call a WASP who doesn't \
+| work for his father, isn't a           |
+|                                        |
+| lawyer, and believes in social causes? |
+\ A: A failure.                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
