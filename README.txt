@@ -1,9 +1,8 @@
  ________________________________________
-/ Q: What do you call a WASP who doesn't \
-| work for his father, isn't a           |
+/ Never laugh at live dragons.           \
 |                                        |
-| lawyer, and believes in social causes? |
-\ A: A failure.                          /
+| -- Bilbo Baggins [J.R.R. Tolkien, "The |
+\ Hobbit"]                               /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
