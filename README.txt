@@ -1,9 +1,7 @@
- ________________________________________
-/ No violence, gentlemen -- no violence, \
-| I beg of you! Consider the furniture!  |
-|                                        |
-\ -- Sherlock Holmes                     /
- ----------------------------------------
+ _______________________________________
+/ Q: How do you save a drowning lawyer? \
+\ A: Throw him a rock.                  /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
