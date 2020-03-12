@@ -1,12 +1,11 @@
  _________________________________________
-/ Swerve me? The path to my fixed purpose \
-| is laid with iron rails, whereon my     |
-| soul is grooved to run. Over unsounded  |
-| gorges, through the rifled hearts of    |
-| mountains, under torrents' beds,        |
-| unerringly I rush!                      |
+/ In Marseilles they make half the toilet \
+| soap we consume in America, but the     |
+| Marseillaise only have a vague          |
+| theoretical idea of its use, which they |
+| have obtained from books of travel.     |
 |                                         |
-\ -- Captain Ahab, "Moby Dick"            /
+\ -- Mark Twain                           /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
