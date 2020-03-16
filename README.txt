@@ -1,9 +1,7 @@
- _________________________________________
-/ But, for my own part, it was Greek to   \
-| me.                                     |
-|                                         |
-\ -- William Shakespeare, "Julius Caesar" /
- -----------------------------------------
+ _____________________________________
+/ In the stairway of life, you'd best \
+\ take the elevator.                  /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
