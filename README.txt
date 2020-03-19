@@ -1,9 +1,7 @@
- _________________________________________
-/ I do desire we may be better strangers. \
-|                                         |
-| -- William Shakespeare, "As You Like    |
-\ It"                                     /
- -----------------------------------------
+ ________________________________________
+/ You are sick, twisted and perverted. I \
+\ like that in a person.                 /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
