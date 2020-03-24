@@ -1,9 +1,7 @@
- _________________________________________
-/ The abuse of greatness is when it       \
-| disjoins remorse from power.            |
-|                                         |
-\ -- William Shakespeare, "Julius Caesar" /
- -----------------------------------------
+ _______________________________________
+/ You will be aided greatly by a person \
+\ whom you thought to be unimportant.   /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
