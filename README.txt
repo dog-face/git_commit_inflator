@@ -1,10 +1,7 @@
  _______________________________________
-/ So so is good, very good, very        \
-| excellent good: and yet it is not; it |
-| is but so so.                         |
-|                                       |
-| -- William Shakespeare, "As You Like  |
-\ It"                                   /
+/ Tomorrow, this will be part of the    \
+| unchangeable past but fortunately, it |
+\ can still be changed today.           /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
