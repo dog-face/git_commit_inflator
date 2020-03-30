@@ -1,7 +1,6 @@
  _______________________________________
-/ Tomorrow, this will be part of the    \
-| unchangeable past but fortunately, it |
-\ can still be changed today.           /
+/ You feel a whole lot more like you do \
+\ now than you did when you used to.    /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
