@@ -1,11 +1,8 @@
- ________________________________________
-/ It has long been an axiom of mine that \
-| the little things are infinitely the   |
-| most important.                        |
-|                                        |
-| -- Sir Arthur Conan Doyle, "A Case of  |
-\ Identity"                              /
- ----------------------------------------
+ _______________________________________
+/ Troubled day for virgins over 16 who  \
+| are beautiful and wealthy and live in |
+\ eucalyptus trees.                     /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
