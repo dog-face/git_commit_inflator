@@ -1,7 +1,7 @@
- ___________________________________
-/ Your nature demands love and your \
-\ happiness depends on it.          /
- -----------------------------------
+ ________________________________________
+/ Avert misunderstanding by calm, poise, \
+\ and balance.                           /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
