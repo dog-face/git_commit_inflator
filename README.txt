@@ -1,7 +1,7 @@
- ______________________________________
-/ You will receive a legacy which will \
-\ place you above want.                /
- --------------------------------------
+ _________________________________________
+/ Good day for a change of scene. Repaper \
+\ the bedroom wall.                       /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
