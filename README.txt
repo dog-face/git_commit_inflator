@@ -1,6 +1,7 @@
  _________________________________________
-/ Good day for a change of scene. Repaper \
-\ the bedroom wall.                       /
+/ Next Friday will not be your lucky day. \
+| As a matter of fact, you don't have a   |
+\ lucky day this year.                    /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
