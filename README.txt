@@ -1,8 +1,9 @@
- _________________________________________
-/ Next Friday will not be your lucky day. \
-| As a matter of fact, you don't have a   |
-\ lucky day this year.                    /
- -----------------------------------------
+ ________________________________________
+/ The very ink with which all history is \
+| written is merely fluid prejudice.     |
+|                                        |
+\ -- Mark Twain                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
