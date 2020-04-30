@@ -1,7 +1,8 @@
- _________________________________________
-/ You're ugly and your mother dresses you \
-\ funny.                                  /
- -----------------------------------------
+ ________________________________________
+/ Living your life is a task so          \
+| difficult, it has never been attempted |
+\ before.                                /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
