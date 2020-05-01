@@ -1,8 +1,10 @@
- ________________________________________
-/ Living your life is a task so          \
-| difficult, it has never been attempted |
-\ before.                                /
- ----------------------------------------
+ _______________________________________
+/ The secret source of humor is not joy \
+| but sorrow; there is no humor in      |
+| Heaven.                               |
+|                                       |
+\ -- Mark Twain                         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
