@@ -1,6 +1,8 @@
- _____________________________________
-< Excellent day to have a rotten day. >
- -------------------------------------
+ _________________________________________
+/ Q: What's the difference between an     \
+| Irish wedding and an Irish wake? A: One |
+\ less drunk.                             /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
