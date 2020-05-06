@@ -1,12 +1,10 @@
- _______________________________________
-/ For years a secret shame destroyed my \
-| peace-- I'd not read Eliot, Auden or  |
-| MacNiece. But now I think a thought   |
-| that brings me hope: Neither had      |
-| Chaucer, Shakespeare, Milton, Pope.   |
-|                                       |
-\ -- Justin Richardson.                 /
- ---------------------------------------
+ _________________________________________
+/ Q: What do you call a principal female  \
+| opera singer whose high C               |
+|                                         |
+| is lower than those of other principal  |
+\ female opera singers? A: A deep C diva. /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
