@@ -1,9 +1,7 @@
- _____________________________________
-/ Nothing so needs reforming as other \
-| people's habits.                    |
-|                                     |
-\ -- Mark Twain                       /
- -------------------------------------
+ _________________________________________
+/ An avocado-tone refrigerator would look \
+\ good on your resume.                    /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
