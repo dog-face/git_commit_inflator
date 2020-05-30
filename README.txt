@@ -1,10 +1,8 @@
- _________________________________________
-/ If one cannot enjoy reading a book over \
-| and over again, there is no use in      |
-| reading it at all.                      |
-|                                         |
-\ -- Oscar Wilde                          /
- -----------------------------------------
+ _______________________________________
+/ Q: What's the difference between USL  \
+| and the Titanic? A: The Titanic had a |
+\ band.                                 /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
