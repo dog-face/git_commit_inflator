@@ -1,6 +1,7 @@
- _____________________________________
-< Your step will soil many countries. >
- -------------------------------------
+ _______________________________________
+/ Your mode of life will be changed for \
+\ the better because of good news soon. /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
