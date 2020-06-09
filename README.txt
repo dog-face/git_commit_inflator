@@ -1,7 +1,7 @@
- _______________________________________
-/ Your mode of life will be changed for \
-\ the better because of good news soon. /
- ---------------------------------------
+ ________________________________________
+/ Try the Moo Shu Pork. It is especially \
+\ good today.                            /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
