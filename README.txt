@@ -1,7 +1,7 @@
- _________________________________________
-/ You are deeply attached to your friends \
-\ and acquaintances.                      /
- -----------------------------------------
+ ______________________________________
+/ A few hours grace before the madness \
+\ begins again.                        /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
