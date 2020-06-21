@@ -1,6 +1,6 @@
  ______________________________________
-/ You have an unusual understanding of \
-\ the problems of human relationships. /
+/ Expect the worst, it's the least you \
+\ can do.                              /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
