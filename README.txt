@@ -1,6 +1,6 @@
  ________________________________________
-/ You own a dog, but you can only feed a \
-\ cat.                                   /
+/ You will inherit some money or a small \
+\ piece of land.                         /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
