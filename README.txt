@@ -1,8 +1,8 @@
- _________________
-/ A is for Apple. \
-|                 |
-\ -- Hester Pryne /
- -----------------
+ _____________________________________
+/ Q: Why did the astrophysicist order \
+| three hamburgers? A: Because he was |
+\ hungry.                             /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
