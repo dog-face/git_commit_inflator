@@ -1,9 +1,5 @@
  ________________________________________
-/ Kiss me, Kate, we will be married o'   \
-| Sunday.                                |
-|                                        |
-| -- William Shakespeare, "The Taming of |
-\ the Shrew"                             /
+< You will be surprised by a loud noise. >
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
