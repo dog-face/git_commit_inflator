@@ -1,7 +1,9 @@
- ________________________________________
-/ You will obey or molten silver will be \
-\ poured into your ears.                 /
- ----------------------------------------
+ _________________________________________
+/ Be careful of reading health books, you \
+| might die of a misprint.                |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
