@@ -1,7 +1,10 @@
- ________________________________________
-/ Tonight you will pay the wages of sin; \
-\ Don't forget to leave a tip.           /
- ----------------------------------------
+ _______________________________________
+/ Anyone who has had a bull by the tail \
+| knows five or six more things than    |
+| someone who hasn't.                   |
+|                                       |
+\ -- Mark Twain                         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
