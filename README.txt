@@ -1,12 +1,10 @@
- _____________________________________
-/ Remark of Dr. Baldwin's concerning  \
-| upstarts: We don't care to eat      |
-| toadstools that think they are      |
-| truffles.                           |
-|                                     |
-| -- Mark Twain, "Pudd'nhead Wilson's |
-\ Calendar"                           /
- -------------------------------------
+ ________________________________________
+/ Q: Why is Christmas just like a day at \
+| the office? A: You do all of the work  |
+| and the fat guy in the suit            |
+|                                        |
+\ gets all the credit.                   /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
