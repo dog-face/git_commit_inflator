@@ -1,9 +1,8 @@
- ________________________________________
-/ Q: What do you call the scratches that \
-| you get when a female                  |
-|                                        |
-\ sheep bites you? A: Ewe nicks.         /
- ----------------------------------------
+ ______________________________________
+/ Your motives for doing whatever good \
+| deed you may have in mind will be    |
+\ misinterpreted by somebody.          /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
