@@ -1,13 +1,15 @@
  ________________________________________
-/ Steady movement is more important than \
-| speed, much of the time. So long as    |
-| there is a regular progression of      |
-| stimuli to get your mental hooks into, |
-| there is room for lateral movement.    |
-| Once this begins, its rate is a matter |
-| of discretion.                         |
+/ Unless hours were cups of sack, and    \
+| minutes capons, and clocks the tongues |
+| of bawds, and dials the signs of       |
+| leaping houses, and the blessed sun    |
+| himself a fair, hot wench in           |
+| flame-colored taffeta, I see no reason |
+| why thou shouldst be so superfluous to |
+| demand the time of the day. I wasted   |
+| time and now doth time waste me.       |
 |                                        |
-\ -- Corwin, Prince of Amber             /
+\ -- William Shakespeare                 /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
