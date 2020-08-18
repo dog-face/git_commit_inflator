@@ -1,7 +1,11 @@
- ________________________________________
-/ You will inherit some money or a small \
-\ piece of land.                         /
- ----------------------------------------
+ _______________________________________
+/ Perilous to all of us are the devices \
+| of an art deeper than we ourselves    |
+| possess.                              |
+|                                       |
+| -- Gandalf the Grey [J.R.R. Tolkien,  |
+\ "Lord of the Rings"]                  /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
