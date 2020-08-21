@@ -1,15 +1,16 @@
  _________________________________________
-/ The camel died quite suddenly on the    \
-| second day, and Selena fretted sullenly |
-| and, buffing her already impeccable     |
-| nails -- not for the first time since   |
-| the journey begain -- pondered snidely  |
-| if this would dissolve into a vignette  |
-| of minor inconveniences like all the    |
-| other holidays spent with Basil.        |
+/ Q: How many existentialists does it     \
+| take to screw in a light bulb? A: Two.  |
+| One to screw it in and one to observe   |
+| how the light bulb                      |
 |                                         |
-| -- Winning sentence, 1983 Bulwer-Lytton |
-\ bad fiction contest.                    /
+| itself symbolizes a single incandescent |
+| beacon of subjective                    |
+|                                         |
+| reality in a netherworld of endless     |
+| absurdity reaching out toward a         |
+|                                         |
+\ maudlin cosmos of nothingness.          /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
