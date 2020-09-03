@@ -1,7 +1,7 @@
- ________________________________________
-/ You will be Told about it Tomorrow. Go \
-\ Home and Prepare Thyself.              /
- ----------------------------------------
+ ______________________________________
+/ You need more time; and you probably \
+\ always will.                         /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
