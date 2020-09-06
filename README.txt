@@ -1,13 +1,9 @@
- _______________________________________
-/ Fortune: You will be attacked next    \
-| Wednesday at 3:15 p.m. by six samurai |
-| sword wielding purple fish glued to   |
-| Harley-Davidson motorcycles.          |
-|                                       |
-| Oh, and have a nice day!              |
-|                                       |
-\ -- Bryce Nesbitt '84                  /
- ---------------------------------------
+ ________________________________________
+/ Rebellion lay in his way, and he found \
+| it.                                    |
+|                                        |
+\ -- William Shakespeare, "Henry IV"     /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
