@@ -1,8 +1,9 @@
- ________________________
-/ Don't Worry, Be Happy. \
-|                        |
-\ -- Meher Baba          /
- ------------------------
+ _________________________________________
+/ The human race has one really effective \
+| weapon, and that is laughter.           |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
