@@ -1,9 +1,7 @@
- _________________________________________
-/ The human race has one really effective \
-| weapon, and that is laughter.           |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ ________________________________________
+/ You will attract cultured and artistic \
+\ people to your home.                   /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
