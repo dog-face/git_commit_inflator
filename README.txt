@@ -1,10 +1,6 @@
- ___________________________________
-/ "... an experienced, industrious, \
-| ambitious, and often quite often  |
-| picturesque liar."                |
-|                                   |
-\ -- Mark Twain                     /
- -----------------------------------
+ ________________
+< Chess tonight. >
+ ----------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
