@@ -1,9 +1,7 @@
- _________________________________________
-/ FORTUNE PROVIDES QUESTIONS FOR THE      \
-| GREAT ANSWERS: #31 A: Chicken Teriyaki. |
-| Q: What is the name of the world's      |
-\ oldest kamikaze pilot?                  /
- -----------------------------------------
+ _____________________________________
+/ Your sister swims out to meet troop \
+\ ships.                              /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
