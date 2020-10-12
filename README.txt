@@ -1,10 +1,10 @@
- _______________________________________
-/ Sometimes I wonder if I'm in my right \
-| mind. Then it passes off and I'm as   |
-| intelligent as ever.                  |
-|                                       |
-\ -- Samuel Beckett, "Endgame"          /
- ---------------------------------------
+ _________________________________________
+/ Q: How does a hacker fix a function     \
+| which                                   |
+|                                         |
+| doesn't work for all of the elements in |
+\ its domain? A: He changes the domain.   /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
