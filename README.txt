@@ -1,9 +1,6 @@
- ________________________________________
-/ There is a great discovery still to be \
-| made in Literature: that of paying     |
-| literary men by the quantity they do   |
-\ NOT write.                             /
- ----------------------------------------
+ _____________________________
+< Give him an evasive answer. >
+ -----------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
