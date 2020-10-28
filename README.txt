@@ -1,7 +1,7 @@
  ____________________________________
-/ Talkers are no good doers.         \
-|                                    |
-\ -- William Shakespeare, "Henry VI" /
+/ You may be gone tomorrow, but that \
+| doesn't mean that you weren't here |
+\ today.                             /
  ------------------------------------
         \   ^__^
          \  (oo)\_______
