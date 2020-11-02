@@ -1,8 +1,7 @@
- _____________________________________
-/ You're growing out of some of your  \
-| problems, but there are others that |
-\ you're growing into.                /
- -------------------------------------
+ ___________________________________
+/ Q: Who cuts the grass on Walton's \
+\ Mountain? A: Lawn Boy.            /
+ -----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
