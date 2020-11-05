@@ -1,9 +1,6 @@
- ___________________________________
-/ Repartee is something we think of \
-| twenty-four hours too late.       |
-|                                   |
-\ -- Mark Twain                     /
- -----------------------------------
+ ________________
+< Chess tonight. >
+ ----------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
