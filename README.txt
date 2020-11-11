@@ -1,7 +1,7 @@
- _________________________________________
-/ Q: What is the difference between Texas \
-\ and yogurt? A: Yogurt has culture.      /
- -----------------------------------------
+ _____________________________________
+/ You single-handedly fought your way \
+\ into this hopeless mess.            /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
