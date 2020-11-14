@@ -1,7 +1,7 @@
- _____________________________________
-/ You single-handedly fought your way \
-\ into this hopeless mess.            /
- -------------------------------------
+ _______________________________________
+/ Don't hate yourself in the morning -- \
+\ sleep till noon.                      /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
