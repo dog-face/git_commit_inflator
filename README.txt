@@ -1,7 +1,8 @@
- _______________________________________
-/ Don't hate yourself in the morning -- \
-\ sleep till noon.                      /
- ---------------------------------------
+ ______________________________________
+/ Q: How did you get into artificial   \
+| intelligence? A: Seemed logical -- I |
+\ didn't have any real intelligence.   /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
