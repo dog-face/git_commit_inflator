@@ -1,12 +1,13 @@
- _______________________________________
-/ For years a secret shame destroyed my \
-| peace-- I'd not read Eliot, Auden or  |
-| MacNiece. But now I think a thought   |
-| that brings me hope: Neither had      |
-| Chaucer, Shakespeare, Milton, Pope.   |
-|                                       |
-\ -- Justin Richardson.                 /
- ---------------------------------------
+ ________________________________________
+/ I've touch'd the highest point of all  \
+| my greatness; And from that full       |
+| meridian of my glory I haste now to my |
+| setting. I shall fall, Like a bright   |
+| exhalation in the evening And no man   |
+| see me more.                           |
+|                                        |
+\ -- Shakespeare                         /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
