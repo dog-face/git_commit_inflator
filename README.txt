@@ -1,7 +1,8 @@
- ___________________________________
-/ Your heart is pure, and your mind \
-\ clear, and your soul devout.      /
- -----------------------------------
+ ____________________________________
+/ You may be gone tomorrow, but that \
+| doesn't mean that you weren't here |
+\ today.                             /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
