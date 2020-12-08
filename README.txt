@@ -1,8 +1,7 @@
- ____________________________________
-/ You may be gone tomorrow, but that \
-| doesn't mean that you weren't here |
-\ today.                             /
- ------------------------------------
+ ______________________________________
+/ You are only young once, but you can \
+\ stay immature indefinitely.          /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
