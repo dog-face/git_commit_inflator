@@ -1,6 +1,5 @@
  _________________________________________
-/ You will always get the greatest        \
-\ recognition for the job you least like. /
+< A day for firm decisions!!!!! Or is it? >
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
