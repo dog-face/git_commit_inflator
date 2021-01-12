@@ -1,8 +1,9 @@
- ______________________________________
-/ You need no longer worry about the   \
-| future. This time tomorrow you'll be |
-\ dead.                                /
- --------------------------------------
+ _____________________________________
+/ It's a very *__UN*lucky week in which \
+| to be took dead.                    |
+|                                     |
+\ -- Churchy La Femme                 /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
