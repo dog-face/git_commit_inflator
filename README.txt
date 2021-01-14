@@ -1,9 +1,8 @@
- _____________________________________
-/ It's a very *__UN*lucky week in which \
-| to be took dead.                    |
-|                                     |
-\ -- Churchy La Femme                 /
- -------------------------------------
+ _________________________________________
+/ Q: What's the difference between an     \
+| Irish wedding and an Irish wake? A: One |
+\ less drunk.                             /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
