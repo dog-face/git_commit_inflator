@@ -1,8 +1,9 @@
- _________________________________________
-/ Q: What's the difference between an     \
-| Irish wedding and an Irish wake? A: One |
-\ less drunk.                             /
- -----------------------------------------
+ ____________________________________
+/ He is now rising from affluence to \
+| poverty.                           |
+|                                    |
+\ -- Mark Twain                      /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
