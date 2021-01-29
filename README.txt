@@ -1,10 +1,6 @@
- ___________________________________
-/ "... an experienced, industrious, \
-| ambitious, and often quite often  |
-| picturesque liar."                |
-|                                   |
-\ -- Mark Twain                     /
- -----------------------------------
+ ____________________________
+< You will soon forget this. >
+ ----------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
