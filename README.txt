@@ -1,7 +1,7 @@
- ___________________________________
-/ Time to be aggressive. Go after a \
-\ tattooed Virgo.                   /
- -----------------------------------
+ _________________________________________
+/ An avocado-tone refrigerator would look \
+\ good on your resume.                    /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
