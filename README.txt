@@ -1,7 +1,8 @@
- _________________________________________
-/ An avocado-tone refrigerator would look \
-\ good on your resume.                    /
- -----------------------------------------
+ ____________________________________
+/ You may be gone tomorrow, but that \
+| doesn't mean that you weren't here |
+\ today.                             /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
