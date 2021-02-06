@@ -1,9 +1,7 @@
- ________________________________________
-/ FORTUNE PROVIDES QUESTIONS FOR THE     \
-| GREAT ANSWERS: #15 A: The Royal        |
-| Canadian Mounted Police. Q: What was   |
-\ the greatest achievement in taxidermy? /
- ----------------------------------------
+ ____________________________________
+/ Q: What is orange and goes "click, \
+\ click?" A: A ball point carrot.    /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
