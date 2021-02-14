@@ -1,7 +1,7 @@
- ________________________________________
-/ Your business will go through a period \
-\ of considerable expansion.             /
- ----------------------------------------
+ ______________________________________
+/ Your life would be very empty if you \
+\ had nothing to regret.               /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
