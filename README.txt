@@ -1,6 +1,8 @@
  ______________________________________
-/ Your life would be very empty if you \
-\ had nothing to regret.               /
+/ When one burns one's bridges, what a \
+| very nice fire it makes.             |
+|                                      |
+\ -- Dylan Thomas                      /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
