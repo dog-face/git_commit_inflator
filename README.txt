@@ -1,7 +1,10 @@
- ______________________________________
-/ Do nothing unless you must, and when \
-\ you must act -- hesitate.            /
- --------------------------------------
+ ____________________________________
+/ They have been at a great feast of \
+| languages, and stolen the scraps.  |
+|                                    |
+| -- William Shakespeare, "Love's    |
+\ Labour's Lost"                     /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
