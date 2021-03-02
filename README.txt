@@ -1,8 +1,7 @@
- _____________________________________
-/ Q: What do you call a half-dozen    \
-| Indians with Asian flu? A: Six sick |
-\ Sikhs (sic).                        /
- -------------------------------------
+ ________________________________________
+/ Tuesday After Lunch is the cosmic time \
+\ of the week.                           /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
