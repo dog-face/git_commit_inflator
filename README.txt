@@ -1,9 +1,6 @@
  ________________________________________
-/ It is a wise father that knows his own \
-| child.                                 |
-|                                        |
-| -- William Shakespeare, "The Merchant  |
-\ of Venice"                             /
+/ Q: Why did the tachyon cross the road? \
+\ A: Because it was on the other side.   /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
