@@ -1,6 +1,6 @@
  ______________________________________
-/ Expect the worst, it's the least you \
-\ can do.                              /
+/ Your own qualities will help prevent \
+\ your advancement in the world.       /
  --------------------------------------
         \   ^__^
          \  (oo)\_______
