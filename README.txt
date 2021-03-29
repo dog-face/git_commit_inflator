@@ -1,10 +1,8 @@
  ________________________________________
-/ The man who sets out to carry a cat by \
-| its tail learns something that will    |
-| always be useful and which never will  |
-| grow dim or doubtful.                  |
-|                                        |
-\ -- Mark Twain                          /
+/ FORTUNE PROVIDES QUESTIONS FOR THE     \
+| GREAT ANSWERS: #4 A: Go west, young    |
+| man, go west! Q: What do wabbits do    |
+\ when they get tiwed of wunning awound? /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
