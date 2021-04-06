@@ -1,7 +1,7 @@
- ______________________________________
-/ You look like a million dollars. All \
-\ green and wrinkled.                  /
- --------------------------------------
+ _________________________________
+/ You will engage in a profitable \
+\ business activity.              /
+ ---------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
