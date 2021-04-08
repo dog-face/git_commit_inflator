@@ -1,7 +1,8 @@
- _________________________________
-/ You will engage in a profitable \
-\ business activity.              /
- ---------------------------------
+ ____________________________________
+/ You're currently going through a   \
+| difficult transition period called |
+\ "Life."                            /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
