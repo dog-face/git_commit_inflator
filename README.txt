@@ -1,8 +1,7 @@
- ____________________________________
-/ You're currently going through a   \
-| difficult transition period called |
-\ "Life."                            /
- ------------------------------------
+ _______________________________________
+/ You are a bundle of energy, always on \
+\ the go.                               /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
