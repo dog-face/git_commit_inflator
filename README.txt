@@ -1,7 +1,10 @@
- _______________________________________
-/ You are a bundle of energy, always on \
-\ the go.                               /
- ---------------------------------------
+ ________________________________________
+/ Q: Why is Christmas just like a day at \
+| the office? A: You do all of the work  |
+| and the fat guy in the suit            |
+|                                        |
+\ gets all the credit.                   /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
