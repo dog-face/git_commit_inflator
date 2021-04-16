@@ -1,6 +1,8 @@
  ________________________________________
-/ Let me put it this way: today is going \
-\ to be a learning experience.           /
+/ Never laugh at live dragons.           \
+|                                        |
+| -- Bilbo Baggins [J.R.R. Tolkien, "The |
+\ Hobbit"]                               /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
