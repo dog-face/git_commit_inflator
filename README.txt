@@ -1,9 +1,10 @@
- ________________________________________
-/ Never laugh at live dragons.           \
-|                                        |
-| -- Bilbo Baggins [J.R.R. Tolkien, "The |
-\ Hobbit"]                               /
- ----------------------------------------
+ ______________________________________
+/ Tell the truth or trump--but get the \
+| trick.                               |
+|                                      |
+| -- Mark Twain, "Pudd'nhead Wilson's  |
+\ Calendar"                            /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
