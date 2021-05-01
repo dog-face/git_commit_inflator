@@ -1,9 +1,7 @@
- ______________________________________
-/ O, what a tangled web we weave, When \
-| first we practice to deceive.        |
-|                                      |
-\ -- Sir Walter Scott, "Marmion"       /
- --------------------------------------
+ _____________________________________
+/ You single-handedly fought your way \
+\ into this hopeless mess.            /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
