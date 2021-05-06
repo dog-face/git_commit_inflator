@@ -1,9 +1,9 @@
- ____________________________________
-/ Lord, what fools these mortals be! \
-|                                    |
-| -- William Shakespeare, "A         |
-\ Midsummer-Night's Dream"           /
- ------------------------------------
+ ______________________________________
+/ If two people love each other, there \
+| can be no happy end to it.           |
+|                                      |
+\ -- Ernest Hemingway                  /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
