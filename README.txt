@@ -1,9 +1,7 @@
- ______________________________________
-/ If two people love each other, there \
-| can be no happy end to it.           |
-|                                      |
-\ -- Ernest Hemingway                  /
- --------------------------------------
+ _________________________________
+/ Tonight's the night: Sleep in a \
+\ eucalyptus tree.                /
+ ---------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
