@@ -1,7 +1,7 @@
- _________________________________________
-/ Q: What's tan and black and looks great \
-\ on a lawyer? A: A doberman.             /
- -----------------------------------------
+ _____________________________________
+/ You recoil from the crude; you tend \
+\ naturally toward the exquisite.     /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
