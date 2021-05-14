@@ -1,7 +1,8 @@
- _____________________________________
-/ You recoil from the crude; you tend \
-\ naturally toward the exquisite.     /
- -------------------------------------
+ __________________________________
+/ Someone is speaking well of you. \
+|                                  |
+\ How unusual!                     /
+ ----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
