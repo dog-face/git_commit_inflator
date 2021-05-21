@@ -1,8 +1,9 @@
- _________________
-/ A is for Apple. \
-|                 |
-\ -- Hester Pryne /
- -----------------
+ ________________________________
+/ She is not refined. She is not \
+| unrefined. She keeps a parrot. |
+|                                |
+\ -- Mark Twain                  /
+ --------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
