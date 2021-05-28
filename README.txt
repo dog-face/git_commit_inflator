@@ -1,6 +1,8 @@
- ________________________________________
-< The time is right to make new friends. >
- ----------------------------------------
+ ______________________________________
+/ Q: What does it say on the bottom of \
+| Coke cans in North Dakota? A: Open   |
+\ other end.                           /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
