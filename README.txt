@@ -1,7 +1,7 @@
- _________________________________
-/ You are taking yourself far too \
-\ seriously.                      /
- ---------------------------------
+ _____________________________________
+/ Your true value depends entirely on \
+\ what you are compared with.         /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
