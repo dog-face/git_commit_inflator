@@ -1,6 +1,6 @@
  _____________________________________
-/ Your true value depends entirely on \
-\ what you are compared with.         /
+/ Among the lucky, you are the chosen \
+\ one.                                /
  -------------------------------------
         \   ^__^
          \  (oo)\_______
