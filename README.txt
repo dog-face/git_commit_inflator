@@ -1,9 +1,7 @@
- _________________________________________
-/ Q: "What is the burning question on the \
-| mind of every dyslexic                  |
-|                                         |
-\ existentialist?" A: "Is there a dog?"   /
- -----------------------------------------
+ _____________________________________
+/ Your goose is cooked. (Your current \
+\ chick is burned up too!)            /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
