@@ -1,7 +1,8 @@
- _____________________________________
-/ Your goose is cooked. (Your current \
-\ chick is burned up too!)            /
- -------------------------------------
+ ____________________________________
+/ Every cloud engenders not a storm. \
+|                                    |
+\ -- William Shakespeare, "Henry VI" /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
