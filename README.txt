@@ -1,11 +1,7 @@
- _____________________________________
-/ It were not best that we should all \
-| think alike; it is difference of    |
-| opinion that makes horse-races.     |
-|                                     |
-| -- Mark Twain, "Pudd'nhead Wilson's |
-\ Calendar"                           /
- -------------------------------------
+ ______________________________________
+/ Hope that the day after you die is a \
+\ nice day.                            /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
