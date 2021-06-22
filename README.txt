@@ -1,7 +1,7 @@
- ___________________________________
-/ Q: Who cuts the grass on Walton's \
-\ Mountain? A: Lawn Boy.            /
- -----------------------------------
+ ________________________________
+/ You may get an opportunity for \
+\ advancement today. Watch it!   /
+ --------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
