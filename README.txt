@@ -1,7 +1,7 @@
- ________________________________
-/ You may get an opportunity for \
-\ advancement today. Watch it!   /
- --------------------------------
+ _______________________________________
+/ You feel a whole lot more like you do \
+\ now than you did when you used to.    /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
