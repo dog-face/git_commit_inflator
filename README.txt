@@ -1,10 +1,7 @@
- _______________________________
-/ Civilization is the limitless \
-| multiplication of unnecessary |
-| necessities.                  |
-|                               |
-\ -- Mark Twain                 /
- -------------------------------
+ ________________________________________
+/ Try the Moo Shu Pork. It is especially \
+\ good today.                            /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
