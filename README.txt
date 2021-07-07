@@ -1,6 +1,9 @@
  ________________________________________
-/ Try the Moo Shu Pork. It is especially \
-\ good today.                            /
+/ No group of professionals meets except \
+| to conspire against the public at      |
+| large.                                 |
+|                                        |
+\ -- Mark Twain                          /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
