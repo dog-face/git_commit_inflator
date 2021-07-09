@@ -1,10 +1,7 @@
- ________________________________________
-/ No group of professionals meets except \
-| to conspire against the public at      |
-| large.                                 |
-|                                        |
-\ -- Mark Twain                          /
- ----------------------------------------
+ ______________________________________
+/ You have had a long-term stimulation \
+\ relative to business.                /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
