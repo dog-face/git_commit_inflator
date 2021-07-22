@@ -1,8 +1,7 @@
- ____________________________________
-/ This life is yours. Some of it was \
-| given to you; the rest, you made   |
-\ yourself.                          /
- ------------------------------------
+ ______________________________________
+/ You have an ambitious nature and may \
+\ make a name for yourself.            /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
