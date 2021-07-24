@@ -1,7 +1,11 @@
- ______________________________________
-/ You have an ambitious nature and may \
-\ make a name for yourself.            /
- --------------------------------------
+ ________________________________________
+/ My only love sprung from my only hate! \
+| Too early seen unknown, and known too  |
+| late!                                  |
+|                                        |
+| -- William Shakespeare, "Romeo and     |
+\ Juliet"                                /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
