@@ -1,11 +1,7 @@
- ________________________________________
-/ My only love sprung from my only hate! \
-| Too early seen unknown, and known too  |
-| late!                                  |
-|                                        |
-| -- William Shakespeare, "Romeo and     |
-\ Juliet"                                /
- ----------------------------------------
+ ______________________________________
+/ Lady Luck brings added income today. \
+\ Lady friend takes it away tonight.   /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
