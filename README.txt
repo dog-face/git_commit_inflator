@@ -1,7 +1,9 @@
- ___________________________________
-/ Q: How many WASPs does it take to \
-\ change a light bulb? A: One.      /
- -----------------------------------
+ _________________________________________
+/ The human race has one really effective \
+| weapon, and that is laughter.           |
+|                                         |
+\ -- Mark Twain                           /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
