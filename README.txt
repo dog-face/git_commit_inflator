@@ -1,9 +1,7 @@
- _________________________________________
-/ The human race has one really effective \
-| weapon, and that is laughter.           |
-|                                         |
-\ -- Mark Twain                           /
- -----------------------------------------
+ ___________________________________
+/ Q: Who cuts the grass on Walton's \
+\ Mountain? A: Lawn Boy.            /
+ -----------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
