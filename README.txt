@@ -1,6 +1,6 @@
  _________________________________________
-/ Don't read any sky-writing for the next \
-\ two weeks.                              /
+/ Your object is to save the world, while \
+\ still leading a pleasant life.          /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
