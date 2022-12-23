@@ -1,7 +1,7 @@
- _________________________________________
-/ Your object is to save the world, while \
-\ still leading a pleasant life.          /
- -----------------------------------------
+ ______________________________________
+/ You will probably marry after a very \
+\ brief courtship.                     /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
