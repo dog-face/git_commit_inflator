@@ -1,7 +1,7 @@
- ______________________________________
-/ You will probably marry after a very \
-\ brief courtship.                     /
- --------------------------------------
+ ________________________________________
+/ Alimony and bribes will engage a large \
+\ share of your wealth.                  /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
