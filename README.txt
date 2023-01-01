@@ -1,5 +1,5 @@
  _____________________________________
-< You will be divorced within a year. >
+< Excellent day to have a rotten day. >
  -------------------------------------
         \   ^__^
          \  (oo)\_______
