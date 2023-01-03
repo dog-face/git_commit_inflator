@@ -1,9 +1,6 @@
  _________________________________________
-/ Knucklehead: "Knock, knock" Pee Wee:    \
-| "Who's there?" Knucklehead: "Little ol' |
-| lady." Pee Wee: "Liddle ol' lady who?"  |
-| Knucklehead: "I didn't know you could   |
-\ yodel"                                  /
+/ Tuesday is the Wednesday of the rest of \
+\ your life.                              /
  -----------------------------------------
         \   ^__^
          \  (oo)\_______
