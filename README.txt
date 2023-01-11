@@ -1,7 +1,7 @@
- _________________________________________
-/ You two ought to be more careful--your  \
-\ love could drag on for years and years. /
- -----------------------------------------
+ ____________________________________
+/ Don't kiss an elephant on the lips \
+\ today.                             /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
