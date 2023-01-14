@@ -1,7 +1,9 @@
- _________________________________________
-/ You will step on the night soil of many \
-\ countries.                              /
- -----------------------------------------
+ _______________________________________
+/ He was part of my dream, of course -- \
+| but then I was part of his dream too. |
+|                                       |
+\ -- Lewis Carroll                      /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
