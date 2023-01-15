@@ -1,8 +1,6 @@
  _______________________________________
-/ He was part of my dream, of course -- \
-| but then I was part of his dream too. |
-|                                       |
-\ -- Lewis Carroll                      /
+/ Excellent day for putting Slinkies on \
+\ an escalator.                         /
  ---------------------------------------
         \   ^__^
          \  (oo)\_______
