@@ -1,7 +1,7 @@
- _______________________________________
-/ Excellent day for putting Slinkies on \
-\ an escalator.                         /
- ---------------------------------------
+ _____________________________________
+/ You display the wonderful traits of \
+\ charm and courtesy.                 /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
