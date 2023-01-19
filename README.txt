@@ -1,10 +1,8 @@
- _______________________________________
-/ Grief can take care of itself; but to \
-| get the full value of a joy you must  |
-| have somebody to divide it with.      |
-|                                       |
-\ -- Mark Twain                         /
- ---------------------------------------
+ _____________________________________
+/ Q: What do you call a half-dozen    \
+| Indians with Asian flu? A: Six sick |
+\ Sikhs (sic).                        /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
