@@ -1,9 +1,9 @@
- ____________________________________
-/ An honest tale speeds best being   \
-| plainly told.                      |
-|                                    |
-\ -- William Shakespeare, "Henry VI" /
- ------------------------------------
+ ______________________________________
+/ If two people love each other, there \
+| can be no happy end to it.           |
+|                                      |
+\ -- Ernest Hemingway                  /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
