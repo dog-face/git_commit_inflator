@@ -1,8 +1,10 @@
- ______________________________________
-/ Good night to spend with family, but \
-| avoid arguments with your mate's new |
-\ lover.                               /
- --------------------------------------
+ ________________________________________
+/ Always the dullness of the fool is the \
+| whetstone of the wits.                 |
+|                                        |
+| -- William Shakespeare, "As You Like   |
+\ It"                                    /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
