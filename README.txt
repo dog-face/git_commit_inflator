@@ -1,10 +1,7 @@
- ________________________________________
-/ Always the dullness of the fool is the \
-| whetstone of the wits.                 |
-|                                        |
-| -- William Shakespeare, "As You Like   |
-\ It"                                    /
- ----------------------------------------
+ _____________________________________
+/ Future looks spotty. You will spill \
+\ soup in late evening.               /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
