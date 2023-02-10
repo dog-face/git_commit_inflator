@@ -1,7 +1,11 @@
- _________________________________________
-/ You attempt things that you do not even \
-\ plan because of your extreme stupidity. /
- -----------------------------------------
+ ________________________________________
+/ The man who sets out to carry a cat by \
+| its tail learns something that will    |
+| always be useful and which never will  |
+| grow dim or doubtful.                  |
+|                                        |
+\ -- Mark Twain                          /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
