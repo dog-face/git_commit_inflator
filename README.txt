@@ -1,8 +1,7 @@
- _________________________________________
-/ You will be attacked by a beast who has \
-| the body of a wolf, the tail of a lion, |
-\ and the face of Donald Duck.            /
- -----------------------------------------
+ ________________________________________
+/ Try the Moo Shu Pork. It is especially \
+\ good today.                            /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
