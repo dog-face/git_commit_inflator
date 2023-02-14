@@ -1,7 +1,8 @@
- ________________________________________
-/ Try the Moo Shu Pork. It is especially \
-\ good today.                            /
- ----------------------------------------
+ _________________________________________
+/ Q: What's the difference between a Mac  \
+| and an Etch-a-Sketch? A: You don't have |
+\ to shake the Mac to clear the screen.   /
+ -----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
