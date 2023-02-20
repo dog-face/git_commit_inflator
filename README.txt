@@ -1,8 +1,5 @@
  ________________________________________
-/ No violence, gentlemen -- no violence, \
-| I beg of you! Consider the furniture!  |
-|                                        |
-\ -- Sherlock Holmes                     /
+< Your ignorance cramps my conversation. >
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
