@@ -1,10 +1,6 @@
- _____________________________________
-/ When angry, count four; when very   \
-| angry, swear.                       |
-|                                     |
-| -- Mark Twain, "Pudd'nhead Wilson's |
-\ Calendar"                           /
- -------------------------------------
+ ____________________________
+< Beware the one behind you. >
+ ----------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
