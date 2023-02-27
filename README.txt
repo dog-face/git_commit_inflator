@@ -1,7 +1,9 @@
- _________________________________________
-/ Perfect day for scrubbing the floor and \
-\ other exciting things.                  /
- -----------------------------------------
+ ________________________________________
+/ There is a great discovery still to be \
+| made in Literature: that of paying     |
+| literary men by the quantity they do   |
+\ NOT write.                             /
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
