@@ -1,8 +1,7 @@
- _____________________________________
-/ You learn to write as if to someone \
-| else because NEXT YEAR YOU WILL BE  |
-\ "SOMEONE ELSE."                     /
- -------------------------------------
+ ______________________________________
+/ You have had a long-term stimulation \
+\ relative to business.                /
+ --------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
