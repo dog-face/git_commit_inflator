@@ -1,8 +1,10 @@
- _________________________________________
-/ You are scrupulously honest, frank, and \
-| straightforward. Therefore you have few |
-\ friends.                                /
- -----------------------------------------
+ ____________________________________
+/ They have been at a great feast of \
+| languages, and stolen the scraps.  |
+|                                    |
+| -- William Shakespeare, "Love's    |
+\ Labour's Lost"                     /
+ ------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
