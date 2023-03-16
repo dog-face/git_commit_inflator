@@ -1,9 +1,8 @@
- ______________________________________
-/ When one burns one's bridges, what a \
-| very nice fire it makes.             |
-|                                      |
-\ -- Dylan Thomas                      /
- --------------------------------------
+ _______________________________________
+/ You are destined to become the        \
+| commandant of the fighting men of the |
+\ department of transportation.         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
