@@ -1,8 +1,6 @@
- _______________________________________
-/ You are destined to become the        \
-| commandant of the fighting men of the |
-\ department of transportation.         /
- ---------------------------------------
+ ________________________________________
+< Your ignorance cramps my conversation. >
+ ----------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
