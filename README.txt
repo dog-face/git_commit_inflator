@@ -1,6 +1,10 @@
  ________________________________________
-/ Think twice before speaking, but don't \
-\ say "think think click click".         /
+/ There is always one thing to remember: \
+| writers are always selling somebody    |
+| out.                                   |
+|                                        |
+| -- Joan Didion, "Slouching Towards     |
+\ Bethlehem"                             /
  ----------------------------------------
         \   ^__^
          \  (oo)\_______
