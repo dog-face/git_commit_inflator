@@ -1,11 +1,9 @@
- ________________________________________
-/ There is always one thing to remember: \
-| writers are always selling somebody    |
-| out.                                   |
-|                                        |
-| -- Joan Didion, "Slouching Towards     |
-\ Bethlehem"                             /
- ----------------------------------------
+ _______________________________________
+/ Q: What's the difference betweeen USL \
+| and the Graf Zeppelin? A: The Graf    |
+| Zeppelin represented cutting edge     |
+\ technology for its time.              /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
