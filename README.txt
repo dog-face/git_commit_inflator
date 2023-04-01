@@ -1,8 +1,7 @@
- ____________________________________
-/ You tread upon my patience.        \
-|                                    |
-\ -- William Shakespeare, "Henry IV" /
- ------------------------------------
+ _____________________________________
+/ Someone whom you reject today, will \
+\ reject you tomorrow.                /
+ -------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
