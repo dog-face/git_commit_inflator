@@ -1,7 +1,7 @@
- ______________________________________
-/ You could live a better life, if you \
-\ had a better mind and a better body. /
- --------------------------------------
+ _______________________________________
+/ Excellent day for putting Slinkies on \
+\ an escalator.                         /
+ ---------------------------------------
         \   ^__^
          \  (oo)\_______
             (__)\       )\/\
